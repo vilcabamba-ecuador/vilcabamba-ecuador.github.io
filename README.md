@@ -16,7 +16,7 @@
 ["world court" says if you (or your child) die from vaccine you cannot prosecute for murder or damages]
 (https://tapnewswire.com/2022/01/the-media-manipulate-us-and-lie-to-us-lets-know-how-to-sort-the-wheat-from-the-chaff/)
 
-[ -removed from instagram- vaxxed just days ago, falls dead before boarding a plane] (https://www.bitchute.com/video/pFoVF9N1ceFf/)
+[ --removed from instagram-- vaxxed just days ago, falls dead before boarding a plane] (https://www.bitchute.com/video/pFoVF9N1ceFf/)
 
 
 [Here is some of that new normal - reporter collapses while reporting booster line waiting for vaccine] (https://www.bitchute.com/video/t0QylaDq59NA/)
