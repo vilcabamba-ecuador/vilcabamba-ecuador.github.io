@@ -25,7 +25,9 @@
 ## Most Important Quote -think about it- they told you
 
 [WHO world health director says vaccines should not be used to *kill children*](https://twitter.com/poore56/status/1473426380670980097)
-" **It is wrong to use these vaccines to kill children**
+" **It is wrong to use these vaccines to kill children** "
+
+
 
 
 ## The Plan
