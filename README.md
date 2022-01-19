@@ -24,8 +24,7 @@
 
 ## Most Important One Quote -think about it- if you zombies have that ability
 
-[WHO world health director says vaccines should not be used to *kill children*]
-(https://twitter.com/poore56/status/1473426380670980097) "Question One ..., 
+[WHO world health director says vaccines should not be used to *kill children*](https://twitter.com/poore56/status/1473426380670980097) "Question One ..., 
 What did he say? Question Two ..., hmmm ... if it is wrong to use these vaccines to kill children,
 hmmm wow, this is really hard to understand ..., wrong to kill children with the vaccines,
 hmmm I am really trying to think here "wrong to kill children with these vaccines" ...
@@ -36,8 +35,7 @@ mask-wearing, vaccine-taking shitty excuses for humans. And he still recommends 
 your vaccines. I 100% agree.
 
 ## The Plan
-[World Depopulation ]( https://thinkaboutit.news/georgia-guidestones-commissioned-by-mystery-man/ )
-Leaders in almost every country are responding to a World wide plan.
+[World Depopulation ]( https://thinkaboutit.news/georgia-guidestones-commissioned-by-mystery-man/ )Leaders in almost every country are responding to a World wide plan.
 Incredibly, countries, media companies, the medical industry, the
 universities, the politicians and businesses are under threat and pressure to agree to
 support this plan. The most famous expression of this plan are carved
@@ -49,46 +47,36 @@ reduce the popluation so only 1 in 20 people alive today will survive.
 This plan is being carried out today primarily through vaccines. So, the
 rest of the references following will deal with our vaccine situation.
 
-["world court" says if you (or your child) die from vaccine you cannot prosecute anyone for murder]
-(https://tapnewswire.com/2022/01/the-media-manipulate-us-and-lie-to-us-lets-know-how-to-sort-the-wheat-from-the-chaff/)
+["world court" says if you (or your child) die from vaccine you cannot prosecute anyone for murder](https://tapnewswire.com/2022/01/the-media-manipulate-us-and-lie-to-us-lets-know-how-to-sort-the-wheat-from-the-chaff/)
 
-[Australia officially tells Doctors they cannot speak out against the vaccine ](https://odysee.com/@OurFreeSociety:2/Australian-GPs---doctors-being-theatened:b )
+[Australia officially tells Doctors they cannot speak out against the vaccine ](https://odysee.com/@OurFreeSociety:2/Australian-GPs---doctors-being-theatened:b 
+[The "FDA" want to hide Pfizer documents showing deaths and side-effects for 75 years](https://www.euroweeklynews.com/2021/12/09/fda-says-it-needs-75-years-to-release-pfizer-covid-19-vaccine-data-to-the-public/)
 
-[The "FDA" want to hide Pfizer documents showing deaths and side-effects for 75 years]
-(https://www.euroweeklynews.com/2021/12/09/fda-says-it-needs-75-years-to-release-pfizer-covid-19-vaccine-data-to-the-public/)
-
-[once you have received a double vaccine, you can never acquire full natural immunity against Covid variants, or any other virus]
-(https://elcolectivodeuno.wordpress.com/2021/12/19/british-government-admits-that-vaccines-have-damaged-the-natural-immune-system-of-people-who-have-received-a-double-vaccination/)
+[once you have received a double vaccine, you can never acquire full natural immunity against Covid variants, or any other virus](https://elcolectivodeuno.wordpress.com/2021/12/19/british-government-admits-that-vaccines-have-damaged-the-natural-immune-system-of-people-who-have-received-a-double-vaccination/)
 So let’s see the “real” pandemic begin now. “ antibody levels are lower in people who become infected after two doses of vaccination.” It goes on to explain that this drop in antibodies is virtually permanent.
 That means your ability to resist infection goes down after vaccination. That means every sort infectious disease, every virus, cancer, AIDS, and shit -i just am not a doctor and i don't want to be- so i am a little "dumb" here but i
 am smart enough to know what your "immune system" does. And with every dose of the vaccine it lowers your immune system
 more. Oh yeah, and you become a carrier and breader of disease for others. See how that works? Yeah, the vaccinated are
 the threat. Hey man, you read it hear first ...
 
-[US capital building now guarded against bombs, missiles, revolution of masses, armed attack -fortified as if an embassy in hostile country]
-(https://www.bitchute.com/video/jSzxpakcIQwY/) What do they know you don't?
+[US capital building now guarded against bombs, missiles, revolution of masses, armed attack -fortified as if an embassy in hostile country](https://www.bitchute.com/video/jSzxpakcIQwY/) What do they know you don't?
 
-[President of eu parliament dies from rapid onset of aids due to vaccine ... and other videos of shaking and paralysis]
-(https://www.bitchute.com/video/mdK8K1KHDIAC/)
+[President of eu parliament dies from rapid onset of aids due to vaccine ... and other videos of shaking and paralysis](https://www.bitchute.com/video/mdK8K1KHDIAC/)
 
 ## They told you so, but you still want to play dumb?
 
-[Senior USA senator says " *millions have died from this vaccine* ]
-(https://www.mediaite.com/tv/dick-durbin-torches-anti-vaxx-quacks-tucker-carlson-and-laura-ingraham-in-senate-floor-speech-i-hope-fox-will-come-to-its-senses/) "start at 1:20 in video"
+[Senior USA senator says " *millions have died from this vaccine* ](https://www.mediaite.com/tv/dick-durbin-torches-anti-vaxx-quacks-tucker-carlson-and-laura-ingraham-in-senate-floor-speech-i-hope-fox-will-come-to-its-senses/) "start at 1:20 in video"
 
 ## How hospitals kill your dumb ass
 
-[Hospitals paid to list deaths as COVID-virus]
-(https://www.organiclifestylemagazine.com/cdc-admits-finacial-hospital-incentives-drove-up-covid-19-death-rates)
+[Hospitals paid to list deaths as COVID-virus](https://www.organiclifestylemagazine.com/cdc-admits-finacial-hospital-incentives-drove-up-covid-19-death-rates)
 
-[Whistleblower Nurse: CDC Protocol 'Is Killing Covid Patients' (Video)]
-(https://rairfoundation.com/whistleblower-nurse-cdc-protocol-is-killing-covid-patients-video/)
+[Whistleblower Nurse: CDC Protocol 'Is Killing Covid Patients' (Video)](https://rairfoundation.com/whistleblower-nurse-cdc-protocol-is-killing-covid-patients-video/)
 It turns out hospitals and their workers are just as dumb and greedy as you. 
 
 ## Find out about the man who leads all you mask-wearers and vaccinators
 [The nephew of America's greatest modern President -John F. Kennedy- writes book
-exposing the leader of Vaccine pushing Worldwide *Anthony Fauci*]
-(https://www.bitchute.com/video/aaSaAho6uVPA/) "cut the vocal cords of puppies
+exposing the leader of Vaccine pushing Worldwide *Anthony Fauci*](https://www.bitchute.com/video/aaSaAho6uVPA/) "cut the vocal cords of puppies
 and held them in cages to be eaten by sand flees..., injected babies with known
 deadly drugs and even after they began dying, continued the experiment claiming
 the drugs were not the cause ...," responsible for every moron on this planet killing
@@ -145,10 +133,9 @@ will not be vaccinated are going to need a little "wake up" from you.
 
 [Covid infections and deaths increase after the first vaccine dose] (https://alexberenson.substack.com/p/covid-infections-and-deaths-soar)
 
-[Government Data: COVID Infections, Deaths Soar After Vaccination]
-(https://www.infowars.com/posts/government-data-covid-infections-deaths-soar-after-vaccination/)
+[Government Data: COVID Infections, Deaths Soar After Vaccination](https://www.infowars.com/posts/government-data-covid-infections-deaths-soar-after-vaccination/)
 
-[Pfizer chief admits vaccines don't work ] (https://www.bitchute.com/video/gIC0jd1p3D3J/)
+[Pfizer chief admits vaccines don't work ](https://www.bitchute.com/video/gIC0jd1p3D3J/)
 
 [Former Pfizer VP and chief scientist for 16 years says "COVID Vaccines *Harm* People”](https://www.shtfplan.com/headline-news/former-pfizer-vp-covid-vaccines-were-always-going-to-harm-people)
 
@@ -156,14 +143,11 @@ will not be vaccinated are going to need a little "wake up" from you.
 
 ## Dead or injured after Vaccine
 
-[killed by vax poison same day she updated her profile photo]
-(https://www.bitchute.com/video/hRctuMG4gYyG/)
+[killed by vax poison same day she updated her profile photo](https://www.bitchute.com/video/hRctuMG4gYyG/)
 
-[13 yr old formerly healthy girl killed by pfizer spends final pain filled days in diapers]
-(https://www.bitchute.com/video/pLKG8jyryN59/)
+[13 yr old formerly healthy girl killed by pfizer spends final pain filled days in diapers](https://www.bitchute.com/video/pLKG8jyryN59/)
 
-[Champion Mountain Biker injured by vaccine]
-(https://www.youtube.com/watch?v=H7inaTiDKaU)"maybe 60 people have contacted me with stories of their damage from the vaccines"
+[Champion Mountain Biker injured by vaccine](https://www.youtube.com/watch?v=H7inaTiDKaU)"maybe 60 people have contacted me with stories of their damage from the vaccines"
 
 [removed from instagram-vaxxed just days ago, falls dead before boarding a plane](https://www.bitchute.com/video/pFoVF9N1ceFf/)
 
@@ -175,10 +159,12 @@ will not be vaccinated are going to need a little "wake up" from you.
 
 ## Miscellaneous news
 
-[Cannabis compounds could prevent Covid: study] (https://www.rt.com/news/545824-cannabis-prevent-treat-covid/) 
+[Cannabis compounds could prevent Covid: study](https://www.rt.com/news/545824-cannabis-prevent-treat-covid/) 
 " I am sorry i included this, but hey -waking up will take you a lot of places. Did you know before the Pharma
 companinies -like Pfizer- took over the medical industry, that 40% of mom-and-pop businesses selling remedies
-included cannabis as part of their prescription?"
+included cannabis as part of their prescription? And while you agree to swat-team old Gringoes growing a few
+pot plants for their own consumption -something that may be beneficial-, you will likewise agree to take massively deadly
+vaccines and force them on others. Smart ..."
 
 [Fighter pilot injured after taking COVID shot says servicemembers are ‘silenced’ by military](https://www.lifesitenews.com/news/fighter-pilot-injured-after-taking-covid-shot-says-servicemembers-are-being-silenced-threatened-by-military/)
 
@@ -202,20 +188,16 @@ It's not hard to believe, because he is recommending everyone (including childre
 "Uh-Oh, it seems like Twitter has removed this link -I wonder why? 
 *This Tweet has been removed by Twitter*
 
-[Australian army veteran: 3 of the 24 000 children vaccinated at a stadium are now officially dead]
-(https://freewestmedia.com/2021/08/23/australian-army-veteran-3-of-the-24-000-children-vaccinated-at-a-stadium-are-now-dead/)
+[Australian army veteran: 3 of the 24 000 children vaccinated at a stadium are now officially dead](https://freewestmedia.com/2021/08/23/australian-army-veteran-3-of-the-24-000-children-vaccinated-at-a-stadium-are-now-dead/)
 Parents were refused entry to the stadium in Sydney Olympic Park while their children were injected. 
 For this purpose, police officers were deployed for surveillance. Nurses and policemen accompanied each student individually,
 *without their parents*.
 
-[FDA Document: 86% Of Children Who Participated In Pfizer Covid Vaccine Trial Experienced Adverse Reactions]
-(https://luis46pr.wordpress.com/2021/05/28/fda-document-86-of-children-who-participated-in-pfizer-covid-vaccine-trial-experienced-adverse-reactions/)
+[FDA Document: 86% Of Children Who Participated In Pfizer Covid Vaccine Trial Experienced Adverse Reactions](https://luis46pr.wordpress.com/2021/05/28/fda-document-86-of-children-who-participated-in-pfizer-covid-vaccine-trial-experienced-adverse-reactions/)
 
-[15 children die after vaccine in Sudan, Africa]
-(https://www.youtube.com/watch?v=Y_tQmzgUX5M)
+[15 children die after vaccine in Sudan, Africa](https://www.youtube.com/watch?v=Y_tQmzgUX5M)
 
-[Baby Girl Dies From Brain Hemorrhage 5 Days After Pfizer Vaccine Shot]
-(https://greatgameindia.com/baby-brain-hemorrhage-vaccine/)
+[Baby Girl Dies From Brain Hemorrhage 5 Days After Pfizer Vaccine Shot](https://greatgameindia.com/baby-brain-hemorrhage-vaccine/)
 
 [The fatality rate for the disease is estimated to be 0.0016% for children under ten. A child has less than 1 in 50.000 chance of dying from the virus. so, why are they trying to vaccinate children (or anyone else) with a potentially deadly vaccine?](https://uk.news.yahoo.com/coronavirus-puzzle-why-risk-death-140222308.html)
 
@@ -225,8 +207,7 @@ For this purpose, police officers were deployed for surveillance. Nurses and pol
 "the numbers are very low" he says and goes on to say a child admitted
 to hospital for *any cause* will instead be officially listed as a "Covid" case. HaHa, fooled you again!
 
-[Baby paralized for life and other vaccine injuries]
-(https://www.youtube.com/watch?v=2nuXE2FS_NU)
+[Baby paralized for life and other vaccine injuries](https://www.youtube.com/watch?v=2nuXE2FS_NU)
 
 ## VAERS database and official "side-effects" possible from vaccines
 
