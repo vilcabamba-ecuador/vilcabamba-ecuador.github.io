@@ -22,17 +22,11 @@
 
 <!-- markdown-toc end -->
 
-## Most Important One Quote -think about it- if you zombies have that ability
+## Most Important Quote -think about it- they told you
 
-[WHO world health director says vaccines should not be used to *kill children*](https://twitter.com/poore56/status/1473426380670980097) "Question One ..., 
-What did he say? Question Two ..., hmmm ... if it is wrong to use these vaccines to kill children,
-hmmm wow, this is really hard to understand ..., wrong to kill children with the vaccines,
-hmmm I am really trying to think here "wrong to kill children with these vaccines" ...
-and the same vaccines are being given to adults ... hmmm well I -personally- agree it may
-be okay to KILL MORON ADULTS with the vaccines. are some people "just too dumb to live?"
-But GOD BLESS THE WHO "world health" leader for defending the children against all you
-mask-wearing, vaccine-taking shitty excuses for humans. And he still recommends you take
-your vaccines. I 100% agree.
+[WHO world health director says vaccines should not be used to *kill children*](https://twitter.com/poore56/status/1473426380670980097)
+" **It is wrong to use these vaccines to kill children**
+
 
 ## The Plan
 [World Depopulation ]( https://thinkaboutit.news/georgia-guidestones-commissioned-by-mystery-man/ )Leaders in almost every country are responding to a World wide plan.
