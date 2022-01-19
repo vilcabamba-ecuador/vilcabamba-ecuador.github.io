@@ -43,24 +43,25 @@ rest of the references following will deal with our vaccine situation.
 
 ["World Court" says if you (or your child) die from vaccine you cannot prosecute anyone for murder](https://tapnewswire.com/2022/01/the-media-manipulate-us-and-lie-to-us-lets-know-how-to-sort-the-wheat-from-the-chaff/)
 
-[Australia officially tells Doctors they cannot speak out against the vaccine ](https://odysee.com/@OurFreeSociety:2/Australian-GPs---doctors-being-theatened:b 
+[Australia officially tells Doctors they cannot speak out against the vaccine ](https://odysee.com/@OurFreeSociety:2/Australian-GPs---doctors-being-theatened:b)
 
 [The "FDA" want to hide Pfizer documents showing deaths and side-effects for 75 years](https://www.euroweeklynews.com/2021/12/09/fda-says-it-needs-75-years-to-release-pfizer-covid-19-vaccine-data-to-the-public/)
 
-[After you have received a vaccine, you lose full natural immunity against Covid variants, and other virus](https://elcolectivodeuno.wordpress.com/2021/12/19/british-government-admits-that-vaccines-have-damaged-the-natural-immune-system-of-people-who-have-received-a-double-vaccination/)
+[After you have received a vaccine, you begin to lose natural immunity against Covid variants, and other virus](https://elcolectivodeuno.wordpress.com/2021/12/19/british-government-admits-that-vaccines-have-damaged-the-natural-immune-system-of-people-who-have-received-a-double-vaccination/)
 
 *COMMENT*:  "That means your ability to resist infection goes down after vaccination. The article also claims the effect
 may be permanent and cumulative."
 
-[US capital building now guarded against bombs, missiles, revolution of masses, armed attack -fortified as if an embassy in hostile country](https://www.bitchute.com/video/jSzxpakcIQwY/) What do they know you don't?
+[US capital building, the "White House", now guarded against bombs, missiles, revolution of masses, armed attack -fortified as if an embassy in hostile country](https://www.bitchute.com/video/jSzxpakcIQwY/) 
+*COMMENT*:  "What do they know you don't?"
 
-[President of eu parliament dies from rapid onset of aids due to vaccine ... and other videos of shaking and paralysis](https://www.bitchute.com/video/mdK8K1KHDIAC/)
+[President of EU parliament dies from rapid onset of aids due to vaccine ... and other videos of shaking and paralysis after Vaccine](https://www.bitchute.com/video/mdK8K1KHDIAC/)
 
 ## They told you so, but you still want to play dumb?
 
 [Senior USA senator says " *millions have died from this vaccine* ](https://www.mediaite.com/tv/dick-durbin-torches-anti-vaxx-quacks-tucker-carlson-and-laura-ingraham-in-senate-floor-speech-i-hope-fox-will-come-to-its-senses/) "start at 1:20 in video"
 
-## How hospitals kill your dumb ass
+## How hospitals are supporting the Covid hoax (and killing patients)
 
 [Hospitals paid to list deaths as COVID-virus](https://www.organiclifestylemagazine.com/cdc-admits-finacial-hospital-incentives-drove-up-covid-19-death-rates)
 
