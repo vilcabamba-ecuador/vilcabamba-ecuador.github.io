@@ -1,21 +1,39 @@
 <!-- markdown-toc start - Don't edit this section. Run M-x markdown-toc-refresh-toc -->
 **Table of Contents**
 
+- [Most Important One Quote -think about it- if you zombies have that ability](#most-important-one-quote--think-about-it--if-you-zombies-have-that-ability)
+- [The Plan](#the-plan)
+- [They told you so, but you still want to play dumb?](#they-told-you-so-but-you-still-want-to-play-dumb)
+- [How hospitals kill your dumb ass](#how-hospitals-kill-your-dumb-ass)
+- [Find out about the man who leads all you mask-wearers and vaccinators](#find-out-about-the-man-who-leads-all-you-mask-wearers-and-vaccinators)
 - [Question One ...](#question-one-)
 - [Question Two](#question-two)
 - [Question Three](#question-three)
 - [Question Four ...](#question-four-)
 - [Question Five](#question-five)
 - [Turn Off your television, radio and newspaper - they are Lying to you -](#turn-off-your-television-radio-and-newspaper---they-are-lying-to-you--)
-    - [It has all been one Big Lie](#it-has-all-been-one-big-lie)
-    - [Dead or injured after Vaccine](#dead-or-injured-after-vaccine)
-    - [Miscellaneous news](#miscellaneous-news)
-- [The Plan](#the-plan)
+- [It has all been one Big Lie](#it-has-all-been-one-big-lie)
+- [Dead or injured after Vaccine](#dead-or-injured-after-vaccine)
+- [Miscellaneous news](#miscellaneous-news)
+- [This is a big ONE](#this-is-a-big-one)
 - [Children](#children)
 - [VAERS database and official "side-effects" possible from vaccines](#vaers-database-and-official-side-effects-possible-from-vaccines)
 - [Athletes dying and falling sick](#athletes-dying-and-falling-sick)
 
 <!-- markdown-toc end -->
+
+## Most Important One Quote -think about it- if you zombies have that ability
+
+[WHO world health director says vaccines should not be used to *kill children*]
+(https://twitter.com/poore56/status/1473426380670980097) "Question One ..., 
+What did he say? Question Two ..., hmmm ... if it is wrong to use these vaccines to kill children,
+hmmm wow, this is really hard to understand ..., wrong to kill children with the vaccines,
+hmmm I am really trying to think here "wrong to kill children with these vaccines" ...
+and the same vaccines are being given to adults ... hmmm well I -personally- agree it may
+be okay to KILL MORON ADULTS with the vaccines. are some people "just too dumb to live?"
+But GOD BLESS THE WHO "world health" leader for defending the children against all you
+mask-wearing, vaccine-taking shitty excuses for humans. And he still recommends you take
+your vaccines. I 100% agree.
 
 ## The Plan
 [World Depopulation ]( https://thinkaboutit.news/georgia-guidestones-commissioned-by-mystery-man/ )
@@ -42,18 +60,34 @@ rest of the references following will deal with our vaccine situation.
 [once you have received a double vaccine, you can never acquire full natural immunity against Covid variants, or any other virus]
 (https://elcolectivodeuno.wordpress.com/2021/12/19/british-government-admits-that-vaccines-have-damaged-the-natural-immune-system-of-people-who-have-received-a-double-vaccination/)
 So let’s see the “real” pandemic begin now. “ antibody levels are lower in people who become infected after two doses of vaccination.” It goes on to explain that this drop in antibodies is virtually permanent.
-That means your ability to resist infection goes down after vaccination.
+That means your ability to resist infection goes down after vaccination. That means every sort infectious disease, every virus, cancer, AIDS, and shit -i just am not a doctor and i don't want to be- so i am a little "dumb" here but i
+am smart enough to know what your "immune system" does. And with every dose of the vaccine it lowers your immune system
+more. Oh yeah, and you become a carrier and breader of disease for others. See how that works? Yeah, the vaccinated are
+the threat. Hey man, you read it hear first ...
+
+[US capital building now guarded against bombs, missiles, revolution of masses, armed attack -fortified as if an embassy in hostile country]
+(https://www.bitchute.com/video/jSzxpakcIQwY/) What do they know you don't?
+
+[President of eu parliament dies from rapid onset of aids due to vaccine ... and other videos of shaking and paralysis]
+(https://www.bitchute.com/video/mdK8K1KHDIAC/)
 
 ## They told you so, but you still want to play dumb?
-[WHO world health director says vaccines should not be used to *kill children*]
-(https://twitter.com/poore56/status/1473426380670980097)
 
-[Senior USA senator says " *million have died from this vaccine* ]
-(https://www.mediaite.com/tv/dick-durbin-torches-anti-vaxx-quacks-tucker-carlson-and-laura-ingraham-in-senate-floor-speech-i-hope-fox-will-come-to-its-senses/)"start at !:20 in video"
+[Senior USA senator says " *millions have died from this vaccine* ]
+(https://www.mediaite.com/tv/dick-durbin-torches-anti-vaxx-quacks-tucker-carlson-and-laura-ingraham-in-senate-floor-speech-i-hope-fox-will-come-to-its-senses/) "start at 1:20 in video"
+
+## How hospitals kill your dumb ass
+
+[Hospitals paid to list deaths as COVID-virus]
+(https://www.organiclifestylemagazine.com/cdc-admits-finacial-hospital-incentives-drove-up-covid-19-death-rates)
+
+[Whistleblower Nurse: CDC Protocol 'Is Killing Covid Patients' (Video)]
+(https://rairfoundation.com/whistleblower-nurse-cdc-protocol-is-killing-covid-patients-video/)
+It turns out hospitals and their workers are just as dumb and greedy as you. 
 
 ## Find out about the man who leads all you mask-wearers and vaccinators
 [The nephew of America's greatest modern President -John F. Kennedy- writes book
-exposing the leader of Vaccine pushing Worldwide *Anthony Motherfucking Fauci*]
+exposing the leader of Vaccine pushing Worldwide *Anthony Fauci*]
 (https://www.bitchute.com/video/aaSaAho6uVPA/) "cut the vocal cords of puppies
 and held them in cages to be eaten by sand flees..., injected babies with known
 deadly drugs and even after they began dying, continued the experiment claiming
@@ -105,7 +139,7 @@ will not be vaccinated are going to need a little "wake up" from you.
 
 [Liers in the media - puppets repeating the same lines for the gullible](https://www.bitchute.com/video/YputqsltlH5K/)
 
-### It has all been one Big Lie
+## It has all been one Big Lie
 
 [Top officials admit hospitalized cases -for instance "hurt their finger"- listed as "new covid case"] (https://www.bitchute.com/video/Fm2UQpy9BXE/)
 
@@ -120,7 +154,7 @@ will not be vaccinated are going to need a little "wake up" from you.
 
 [Vaccine Safety Research Foundation CEO - "150-300 thousand deaths in the U.S. have been caused by the injections."](https://nationalfile.com/experts-accuse-govt-manipulating-vaccine-data-claim-300000-deaths-caused-injections/)
 
-### Dead or injured after Vaccine
+## Dead or injured after Vaccine
 
 [killed by vax poison same day she updated her profile photo]
 (https://www.bitchute.com/video/hRctuMG4gYyG/)
@@ -139,7 +173,7 @@ will not be vaccinated are going to need a little "wake up" from you.
 
 [Inventor of major technology used in vaccines says "I took the vaccine twice and almost died."] (https://thecovidworld.com/robert-malone-the-story-of-my-vaccine-injury-i-almost-died/?fbclid=IwAR35tSolOhSTi5didipuCsqRNQWLrLc3r4_3tFsOhV3BWXud6QB8KwtEdHc)
 
-### Miscellaneous news
+## Miscellaneous news
 
 [Cannabis compounds could prevent Covid: study] (https://www.rt.com/news/545824-cannabis-prevent-treat-covid/) 
 " I am sorry i included this, but hey -waking up will take you a lot of places. Did you know before the Pharma
@@ -171,7 +205,8 @@ It's not hard to believe, because he is recommending everyone (including childre
 [Australian army veteran: 3 of the 24 000 children vaccinated at a stadium are now officially dead]
 (https://freewestmedia.com/2021/08/23/australian-army-veteran-3-of-the-24-000-children-vaccinated-at-a-stadium-are-now-dead/)
 Parents were refused entry to the stadium in Sydney Olympic Park while their children were injected. 
-For this purpose, police officers were deployed for surveillance. Nurses and policemen accompanied each student individually.
+For this purpose, police officers were deployed for surveillance. Nurses and policemen accompanied each student individually,
+*without their parents*.
 
 [FDA Document: 86% Of Children Who Participated In Pfizer Covid Vaccine Trial Experienced Adverse Reactions]
 (https://luis46pr.wordpress.com/2021/05/28/fda-document-86-of-children-who-participated-in-pfizer-covid-vaccine-trial-experienced-adverse-reactions/)
