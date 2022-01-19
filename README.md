@@ -79,7 +79,8 @@ continued the experiment claiming the drugs were not the cause ..."
 ## Question One ...
 How is it true that I have not worn a mask in two years ...
 And I have been kissing, hugging and doing all normal things with probably
-50 local friends for 2 years in Vilcabamba that do *not*  wear masks and --- have *not* been
+50 local friends for 2 years in Vilcabamba that 
+do *not*  wear masks and --- have *not* been
 vaccinated ...
 And I have been interacting with over 100 *international* visitors to
 Vilcabamba ...
@@ -92,8 +93,8 @@ How many have gone to the hospital -than died- and than you received a "Covid" d
 
 ## Question Two
 Why is the government trying to vaccinate children when they have less that 1 in 50,000 chance
-of "dying"  from a Covid infection? When -as i will show in the links below- that 100's of
-thousands have died of the "vaccine?"
+of "dying"  from a Covid infection? 
+[The fatality rate for the disease is estimated to be 0.0016% for children under ten. A child has less than 1 in 50.000 chance of dying from the virus. so, why are they trying to vaccinate children (or anyone else) with a potentially deadly vaccine?](https://uk.news.yahoo.com/coronavirus-puzzle-why-risk-death-140222308.html)
 
 ## Question Three
 What do you think is an appropriate penalty for someone who injures or kills a child?
@@ -165,7 +166,7 @@ vaccines and force them on others. Smart ..."
 
 [Dr. Robert Malone is a scientist sometimes referred to as "the inventor of modern vaccine technology."](https://childrenshealthdefense.org/defender/justin-williams-robert-malone-fully-vaccinated-covid-super-spreaders/) “The idea that a person being vaccinated stops the spreading the virus is totally false. A total lie.”
 
-[Top Vaccine pusher in USA (Fauci) connected to experiments involving torture and death of puppies](https://nypost.com/2021/10/27/fauci-slammed-by-beagle-organization-over-alleged-experiments/)
+[Top Vaccine pusher in USA (auci) connected to experiments involving torture and death of puppies](https://nypost.com/2021/10/27/fauci-slammed-by-beagle-organization-over-alleged-experiments/)
 It's not hard to believe, because he is recommending everyone (including children) take multiple vaccines and possibly suffer horrifying disease and death.
 
 ## This is a big ONE
@@ -189,8 +190,6 @@ For this purpose, police officers were deployed for surveillance. Nurses and pol
 [15 children die after vaccine in Sudan, Africa](https://www.youtube.com/watch?v=Y_tQmzgUX5M)
 
 [Baby Girl Dies From Brain Hemorrhage 5 Days After Pfizer Vaccine Shot](https://greatgameindia.com/baby-brain-hemorrhage-vaccine/)
-
-[The fatality rate for the disease is estimated to be 0.0016% for children under ten. A child has less than 1 in 50.000 chance of dying from the virus. so, why are they trying to vaccinate children (or anyone else) with a potentially deadly vaccine?](https://uk.news.yahoo.com/coronavirus-puzzle-why-risk-death-140222308.html)
 
 [Schools are Vaccinating Children without Their Parents’ Consent](https://beckernews.com/schools-are-now-vaccinating-children-without-their-parents-consent-here-is-the-dirty-trick-they-are-using-to-jab-kids-43541/)
 
