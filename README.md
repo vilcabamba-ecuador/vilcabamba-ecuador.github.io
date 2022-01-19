@@ -41,12 +41,13 @@ reduce the popluation so only 1 in 20 people alive today will survive.
 This plan is being carried out today primarily through vaccines. So, the
 rest of the references following will deal with our vaccine situation.
 
-["world court" says if you (or your child) die from vaccine you cannot prosecute anyone for murder](https://tapnewswire.com/2022/01/the-media-manipulate-us-and-lie-to-us-lets-know-how-to-sort-the-wheat-from-the-chaff/)
+["World Court" says if you (or your child) die from vaccine you cannot prosecute anyone for murder](https://tapnewswire.com/2022/01/the-media-manipulate-us-and-lie-to-us-lets-know-how-to-sort-the-wheat-from-the-chaff/)
 
 [Australia officially tells Doctors they cannot speak out against the vaccine ](https://odysee.com/@OurFreeSociety:2/Australian-GPs---doctors-being-theatened:b 
+
 [The "FDA" want to hide Pfizer documents showing deaths and side-effects for 75 years](https://www.euroweeklynews.com/2021/12/09/fda-says-it-needs-75-years-to-release-pfizer-covid-19-vaccine-data-to-the-public/)
 
-[once you have received a double vaccine, you can never acquire full natural immunity against Covid variants, or any other virus](https://elcolectivodeuno.wordpress.com/2021/12/19/british-government-admits-that-vaccines-have-damaged-the-natural-immune-system-of-people-who-have-received-a-double-vaccination/)
+[After you have received a vaccine, you lose full natural immunity against Covid variants, and other virus](https://elcolectivodeuno.wordpress.com/2021/12/19/british-government-admits-that-vaccines-have-damaged-the-natural-immune-system-of-people-who-have-received-a-double-vaccination/)
 So let’s see the “real” pandemic begin now. “ antibody levels are lower in people who become infected after two doses of vaccination.” It goes on to explain that this drop in antibodies is virtually permanent.
 That means your ability to resist infection goes down after vaccination. That means every sort infectious disease, every virus, cancer, AIDS, and shit -i just am not a doctor and i don't want to be- so i am a little "dumb" here but i
 am smart enough to know what your "immune system" does. And with every dose of the vaccine it lowers your immune system
