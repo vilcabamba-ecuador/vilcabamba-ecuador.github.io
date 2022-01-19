@@ -51,7 +51,7 @@ rest of the references following will deal with our vaccine situation.
 *COMMENT*:  "That means your ability to resist infection goes down after vaccination. The article also claims the effect
 may be permanent and cumulative."
 
-[US capital building, the "White House", now guarded against bombs, missiles, revolution of masses, armed attack -fortified as if an embassy in hostile country](https://www.bitchute.com/video/jSzxpakcIQwY/) 
+[US capital building, the "White House", now guarded against bombs, missiles, revolution of masses, armed attack by Zombies -fortified as if an embassy in hostile country](https://www.bitchute.com/video/jSzxpakcIQwY/) 
 *COMMENT*:  "What do they know you don't?"
 
 [President of EU parliament dies from rapid onset of aids due to vaccine ... and other videos of shaking and paralysis after Vaccine](https://www.bitchute.com/video/mdK8K1KHDIAC/)
@@ -66,18 +66,15 @@ may be permanent and cumulative."
 [Hospitals paid to list deaths as COVID-virus](https://www.organiclifestylemagazine.com/cdc-admits-finacial-hospital-incentives-drove-up-covid-19-death-rates)
 
 [Whistleblower Nurse: CDC Protocol 'Is Killing Covid Patients' (Video)](https://rairfoundation.com/whistleblower-nurse-cdc-protocol-is-killing-covid-patients-video/)
-It turns out hospitals and their workers are just as dumb and greedy as you. 
+*COMMENT*:  It turns out hospitals and their workers are just as dumb and greedy as you. 
 
-## Find out about the man who leads all you mask-wearers and vaccinators
+## Find out about the man who leads all you mask-wearers and vaccinators -Anthony Fauci-
 [The nephew of America's greatest modern President -John F. Kennedy- writes book
-exposing the leader of Vaccine pushing Worldwide *Anthony Fauci*](https://www.bitchute.com/video/aaSaAho6uVPA/) "cut the vocal cords of puppies
-and held them in cages to be eaten by sand flees..., injected babies with known
-deadly drugs and even after they began dying, continued the experiment claiming
-the drugs were not the cause ...," responsible for every moron on this planet killing
-themselves (I agree with Morons killing themselves), but also now killing children
-who are -by my definition without qualification- innocent. 
-So for you ...... Morons reading this, I hold you responsible for the deaths and injuries
-to children.
+exposing the leader of Vaccine pushing Worldwide ](https://www.bitchute.com/video/aaSaAho6uVPA/) 
+"*Anthony Fauci * 
+- cut the vocal cords of puppies and held them in cages to be eaten by sand flees 
+- injected babies with known deadly drugs and even after they began dying, 
+continued the experiment claiming the drugs were not the cause ..." 
 
 ## Question One ...
 How is it true that I have not worn a mask in two years ...
