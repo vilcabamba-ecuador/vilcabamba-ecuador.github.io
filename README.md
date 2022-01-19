@@ -48,7 +48,6 @@ rest of the references following will deal with our vaccine situation.
 [The "FDA" want to hide Pfizer documents showing deaths and side-effects for 75 years](https://www.euroweeklynews.com/2021/12/09/fda-says-it-needs-75-years-to-release-pfizer-covid-19-vaccine-data-to-the-public/)
 
 [After you have received a vaccine, you begin to lose natural immunity against Covid variants, and other virus](https://elcolectivodeuno.wordpress.com/2021/12/19/british-government-admits-that-vaccines-have-damaged-the-natural-immune-system-of-people-who-have-received-a-double-vaccination/)
-
 *COMMENT*:  "That means your ability to resist infection goes down after vaccination. The article also claims the effect
 may be permanent and cumulative."
 
@@ -59,7 +58,8 @@ may be permanent and cumulative."
 
 ## They told you so, but you still want to play dumb?
 
-[Senior USA senator says " *millions have died from this vaccine* ](https://www.mediaite.com/tv/dick-durbin-torches-anti-vaxx-quacks-tucker-carlson-and-laura-ingraham-in-senate-floor-speech-i-hope-fox-will-come-to-its-senses/) "start at 1:20 in video"
+[Senior USA senator says " *millions have died from this vaccine* ](https://www.mediaite.com/tv/dick-durbin-torches-anti-vaxx-quacks-tucker-carlson-and-laura-ingraham-in-senate-floor-speech-i-hope-fox-will-come-to-its-senses/) 
+*COMMENT*:  "start at time 1:20 in video"
 
 ## How hospitals are supporting the Covid hoax (and killing patients)
 
