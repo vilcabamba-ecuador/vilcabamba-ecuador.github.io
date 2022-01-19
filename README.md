@@ -26,9 +26,7 @@
 
 [WHO world health director says vaccines should not be used to *kill children*](https://twitter.com/poore56/status/1473426380670980097)
 " **It is wrong to use these vaccines to kill children** "
-
-
-
+*COMMENT*:  "If it is wrong to kill children with the vaccine, is it okay to kill adults with the vaccine?"
 
 ## The Plan
 [World Depopulation ]( https://thinkaboutit.news/georgia-guidestones-commissioned-by-mystery-man/ )Leaders in almost every country are responding to a World wide plan.
