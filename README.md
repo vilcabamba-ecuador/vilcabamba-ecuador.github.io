@@ -1,3 +1,4 @@
+
 <!-- markdown-toc start - Don't edit this section. Run M-x markdown-toc-refresh-toc -->
 **Table of Contents**
 
@@ -69,27 +70,22 @@ may be permanent and cumulative."
 *COMMENT*:  It turns out hospitals and their workers are just as dumb and greedy as you. 
 
 ## Find out about the man who leads all you mask-wearers and vaccinators -Anthony Fauci-
-[The nephew of America's greatest modern President -John F. Kennedy- writes book
+[The nephew of America's greatest modern President -John F. Kennedy- wrote a  book
 exposing the leader of Vaccine pushing Worldwide ](https://www.bitchute.com/video/aaSaAho6uVPA/) 
 "*Anthony Fauci * 
 - cut the vocal cords of puppies and held them in cages to be eaten by sand flees 
 - injected babies with known deadly drugs and even after they began dying, 
-continued the experiment claiming the drugs were not the cause ..." 
+continued the experiment claiming the drugs were not the cause ..."
+- and so much more ...
 
 ## Question One ...
-How is it true that I have not worn a mask in two years ...
-And I have been kissing, hugging and doing all normal things with probably
-50 local friends for 2 years in Vilcabamba that 
-do *not*  wear masks and --- have *not* been
-vaccinated ...
-And I have been interacting with over 100 *international* visitors to
-Vilcabamba ...
-And neither I nor they have gotten sick and gone to the hospital? 
-I can assure you that I and the majority of the people i speak of above have had "Covid"
-and it has been no more than a mild flu.
-So, why is the government trying to push (and force) vaccines on everyone?
-Look around you, how many people you know have died of "Covid" in their homes?
-How many have gone to the hospital -than died- and than you received a "Covid" death certificate?
+I have not worn a mask in two years nor been vaccinated. I **do not** spend any amount
+of time with vaccinated or mask-wearing individuals. My social interactions include all
+normal hugging, kissing and distance as before 2 years ago. My honest estimate is that my
+group of contacts includes 50 locals and brief periods around 100 international visitors
+to Vilcabamba. How is it that not one of these people -and myself- have suffered anything
+more than normal colds and flu? We **avoid** hospitals -maybe that is part of our continuing
+health.
 
 ## Question Two
 Why is the government trying to vaccinate children when they have less that 1 in 50,000 chance
@@ -104,20 +100,19 @@ So if a child is injured or disabled by application of a vaccine ...
 If the government was really concerned with your health, why have they forced
 you -for long periods- to close or reduce hours for businesses and reduce their clients
 so that the businesses are taking in much less money, but they still need to pay the Banks?
-
-## Question Five
-How stupid are you? I like that question and I hope I can continue to ask it of myself.
-Am I stupid to waste my precious time to do this work for you?
-I have two answers to the above question, but i will only give one.
-I cannot - I will not - let children be injured or harmed by the vaccine. 
-Also, they will try to force vaccinate everyone -so I and others who
-will not be vaccinated are going to need a little "wake up" from you.
+Everyone has to maintain some flow of money into and out of their possesion, but the
+lockdowns attacked our ability. They also reduced our ability to communicate with each other
+about our local situation, leaving us dependant on the big media companies to give
+us information through -primarily here- the television.
 
 ## Turn Off your television, radio and newspaper - they are Lying to you - 
 
 [China using Holographic news personalities] (https://hw.infowars.com/posts/china-reveals-ai-news-anchor-almost-indistinguishable-from-real-human/)
 
 [Liers in the media - puppets repeating the same lines for the gullible](https://www.bitchute.com/video/YputqsltlH5K/)
+
+[More liers repeating the **exact same lines** in the news](https://www.huffpost.com/entry/local-news-phrase-conan_n_4460787)
+*COMMENT*:  "Who is writing these lines and how is it that these *independant* news channels are saying the *exact same thing*?"
 
 ## It has all been one Big Lie
 
@@ -174,16 +169,17 @@ It's not hard to believe, because he is recommending everyone (including childre
 [Scientific studies showing Natural Immunity better than dangerous or life-threatening vaccines)](https://brownstone.org/articles/79-research-studies-affirm-naturally-acquired-immunity-to-covid-19-documented-linked-and-quoted/)
 
 ## Children
+[ USA: COVID Vaccines For Kids Under 5 Could Be Approved By Next Month](https://www.huffpost.com/entry/pfizer-covid-vaccine-children-under-5_n_61e97aaae4b0a864b07d2ce9?utm_source=spotim&utm_medium=spotim_recirculation)
 
 [Australian kids reportedly collapsed at Qudos Bank Arena vaccination hub today]! 
 (pic.twitter.com/FHit3OXkvu) — Nicola Charles (@nicola1charles) August 17, 2021
-"Uh-Oh, it seems like Twitter has removed this link -I wonder why? 
 *This Tweet has been removed by Twitter*
+*COMMENT*:  "Uh-Oh, it seems like Twitter has removed this link -I wonder why? 
 
 [Australian army veteran: 3 of the 24 000 children vaccinated at a stadium are now officially dead](https://freewestmedia.com/2021/08/23/australian-army-veteran-3-of-the-24-000-children-vaccinated-at-a-stadium-are-now-dead/)
-Parents were refused entry to the stadium in Sydney Olympic Park while their children were injected. 
-For this purpose, police officers were deployed for surveillance. Nurses and policemen accompanied each student individually,
-*without their parents*.
+"Parents were refused entry to the stadium in Sydney Olympic Park while their children were injected. 
+For this purpose, police officers were deployed for surveillance. 
+Nurses and policemen accompanied each student individually, *without their parents*."
 
 [FDA Document: 86% Of Children Who Participated In Pfizer Covid Vaccine Trial Experienced Adverse Reactions](https://luis46pr.wordpress.com/2021/05/28/fda-document-86-of-children-who-participated-in-pfizer-covid-vaccine-trial-experienced-adverse-reactions/)
 
