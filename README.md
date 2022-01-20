@@ -135,7 +135,7 @@ will not be vaccinated are going to need a little "wake up" from you.
 
 ## Dead or injured after Vaccine
 
-[killed by vax poison same day she updated her profile photo](https://www.bitchute.com/video/hRctuMG4gYyG/)
+[Killed by vaccine same day she updated her profile photo](https://www.bitchute.com/video/hRctuMG4gYyG/)
 
 [13 yr old formerly healthy girl killed by pfizer spends final pain filled days in diapers](https://www.bitchute.com/video/pLKG8jyryN59/)
 
