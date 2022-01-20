@@ -2,16 +2,15 @@
 <!-- markdown-toc start - Don't edit this section. Run M-x markdown-toc-refresh-toc -->
 **Table of Contents**
 
-- [Most Important One Quote -think about it- if you zombies have that ability](#most-important-one-quote--think-about-it--if-you-zombies-have-that-ability)
+- [Most Important Quote -think about it- they told you](#most-important-quote--think-about-it--they-told-you)
 - [The Plan](#the-plan)
 - [They told you so, but you still want to play dumb?](#they-told-you-so-but-you-still-want-to-play-dumb)
-- [How hospitals kill your dumb ass](#how-hospitals-kill-your-dumb-ass)
-- [Find out about the man who leads all you mask-wearers and vaccinators](#find-out-about-the-man-who-leads-all-you-mask-wearers-and-vaccinators)
+- [How hospitals are supporting the Covid hoax (and killing patients)](#how-hospitals-are-supporting-the-covid-hoax-and-killing-patients)
+- [Find out about the man who leads all you mask-wearers and vaccinators -Anthony Fauci-](#find-out-about-the-man-who-leads-all-you-mask-wearers-and-vaccinators--anthony-fauci-)
 - [Question One ...](#question-one-)
 - [Question Two](#question-two)
 - [Question Three](#question-three)
 - [Question Four ...](#question-four-)
-- [Question Five](#question-five)
 - [Turn Off your television, radio and newspaper - they are Lying to you -](#turn-off-your-television-radio-and-newspaper---they-are-lying-to-you--)
 - [It has all been one Big Lie](#it-has-all-been-one-big-lie)
 - [Dead or injured after Vaccine](#dead-or-injured-after-vaccine)
@@ -23,11 +22,14 @@
 
 <!-- markdown-toc end -->
 
-## Most Important Quote -think about it- they told you
+## Most Important Quotes - they told you
 
 [WHO world health director says vaccines should not be used to *kill children*](https://twitter.com/poore56/status/1473426380670980097)
-" **It is wrong to use these vaccines to kill children** "
+" **It is wrong to use these vaccines to kill children** "\
 *COMMENT*:  "If it is wrong to kill children with the vaccine, is it okay to kill adults with the vaccine?"
+
+[Senior USA senator says " *millions have died from this vaccine* ](https://www.mediaite.com/tv/dick-durbin-torches-anti-vaxx-quacks-tucker-carlson-and-laura-ingraham-in-senate-floor-speech-i-hope-fox-will-come-to-its-senses/) 
+*COMMENT*:  "start at time 1:20 in video"
 
 ## The Plan
 [World Depopulation ]( https://thinkaboutit.news/georgia-guidestones-commissioned-by-mystery-man/ )Leaders in almost every country are responding to a World wide plan.
@@ -57,10 +59,6 @@ may be permanent and cumulative."
 
 [President of EU parliament dies from rapid onset of aids due to vaccine ... and other videos of shaking and paralysis after Vaccine](https://www.bitchute.com/video/mdK8K1KHDIAC/)
 
-## They told you so, but you still want to play dumb?
-
-[Senior USA senator says " *millions have died from this vaccine* ](https://www.mediaite.com/tv/dick-durbin-torches-anti-vaxx-quacks-tucker-carlson-and-laura-ingraham-in-senate-floor-speech-i-hope-fox-will-come-to-its-senses/) 
-*COMMENT*:  "start at time 1:20 in video"
 
 ## How hospitals are supporting the Covid hoax (and killing patients)
 
