@@ -26,10 +26,10 @@
 
 [WHO world health director says vaccines should not be used to *kill children*](https://twitter.com/poore56/status/1473426380670980097)
 " **It is wrong to use these vaccines to kill children** "\
-*COMMENT*:  "If it is wrong to kill children with the vaccine, is it okay to kill adults with the vaccine?"
+*comment*:  "If it is wrong to kill children with the vaccine, is it okay to kill adults with the vaccine?"
 
 [Senior USA senator says " *millions have died from this vaccine* ](https://www.mediaite.com/tv/dick-durbin-torches-anti-vaxx-quacks-tucker-carlson-and-laura-ingraham-in-senate-floor-speech-i-hope-fox-will-come-to-its-senses/) 
-*COMMENT*:  "start at time 1:20 in video"
+*comment*:  "start at time 1:20 in video"
 
 ## The Plan
 [World Depopulation ]( https://thinkaboutit.news/georgia-guidestones-commissioned-by-mystery-man/ )Leaders in almost every country are responding to a World wide plan.
@@ -51,11 +51,11 @@ rest of the references following will deal with our vaccine situation.
 [The "FDA" want to hide Pfizer documents showing deaths and side-effects for 75 years](https://www.euroweeklynews.com/2021/12/09/fda-says-it-needs-75-years-to-release-pfizer-covid-19-vaccine-data-to-the-public/)
 
 [After you have received a vaccine, you begin to lose natural immunity against Covid variants, and other virus](https://elcolectivodeuno.wordpress.com/2021/12/19/british-government-admits-that-vaccines-have-damaged-the-natural-immune-system-of-people-who-have-received-a-double-vaccination/)
-*COMMENT*:  "That means your ability to resist infection goes down after vaccination. The article also claims the effect
+*comment*:  "That means your ability to resist infection goes down after vaccination. The article also claims the effect
 may be permanent and cumulative."
 
 [US capital building, the "White House", now guarded against bombs, missiles, revolution of masses, armed attack by Zombies -fortified as if an embassy in hostile country](https://www.bitchute.com/video/jSzxpakcIQwY/) 
-*COMMENT*:  "What do they know you don't?"
+*comment*:  "What do they know you don't?"
 
 [President of EU parliament dies from rapid onset of aids due to vaccine ... and other videos of shaking and paralysis after Vaccine](https://www.bitchute.com/video/mdK8K1KHDIAC/)
 
@@ -65,7 +65,7 @@ may be permanent and cumulative."
 [Hospitals paid to list deaths as COVID-virus](https://www.organiclifestylemagazine.com/cdc-admits-finacial-hospital-incentives-drove-up-covid-19-death-rates)
 
 [Whistleblower Nurse: CDC Protocol 'Is Killing Covid Patients' (Video)](https://rairfoundation.com/whistleblower-nurse-cdc-protocol-is-killing-covid-patients-video/)
-*COMMENT*:  It turns out hospitals and their workers are just as dumb and greedy as you. 
+*comment*:  It turns out hospitals and their workers are just as dumb and greedy as you. 
 
 ## Find out about the man who leads all you mask-wearers and vaccinators -Anthony Fauci-
 [The nephew of America's greatest modern President -John F. Kennedy- wrote a  book
@@ -110,9 +110,11 @@ us information through -primarily here- the television.
 [Liers in the media - puppets repeating the same lines for the gullible](https://www.bitchute.com/video/YputqsltlH5K/)
 
 [More liers repeating the **exact same lines** in the news](https://www.huffpost.com/entry/local-news-phrase-conan_n_4460787)
-*COMMENT*:  "Who is writing these lines and how is it that these *independant* news channels are saying the *exact same thing*?"
+*comment*:  "Who is writing these lines and how is it that these *independant* news channels are saying the *exact same thing*?"
 
 ## It has all been one Big Lie
+[Tanzanian president **tests goat and papaya** for coronavirus and the result is positive!"]
+(https://globalnews.ca/news/6910821/coronavirus-papaya-goat-tanzania/)
 
 [Top officials admit hospitalized cases -for instance "hurt their finger"- listed as "new covid case"] (https://www.bitchute.com/video/Fm2UQpy9BXE/)
 
@@ -172,7 +174,7 @@ It's not hard to believe, because he is recommending everyone (including childre
 [Australian kids reportedly collapsed at Qudos Bank Arena vaccination hub today]! 
 (pic.twitter.com/FHit3OXkvu) — Nicola Charles (@nicola1charles) August 17, 2021
 *This Tweet has been removed by Twitter*
-*COMMENT*:  "Uh-Oh, it seems like Twitter has removed this link -I wonder why? 
+*comment*:  "Uh-Oh, it seems like Twitter has removed this link -I wonder why? 
 
 [Australian army veteran: 3 of the 24 000 children vaccinated at a stadium are now officially dead](https://freewestmedia.com/2021/08/23/australian-army-veteran-3-of-the-24-000-children-vaccinated-at-a-stadium-are-now-dead/)
 "Parents were refused entry to the stadium in Sydney Olympic Park while their children were injected. 
