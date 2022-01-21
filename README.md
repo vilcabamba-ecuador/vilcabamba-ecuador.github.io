@@ -1,15 +1,19 @@
-
 <!-- markdown-toc start - Don't edit this section. Run M-x markdown-toc-refresh-toc -->
 **Table of Contents**
 
+- [Brave members of EU parliament speak out](#brave-members-of-eu-parliament-speak-out)
 - [Most Important Quotes - they told you](#most-important-quotes---they-told-you)
 - [The Plan](#the-plan)
+- [Forced Vaccination video  haha](#forced-vaccination-video--haha)
 - [How hospitals are supporting the Covid hoax (and killing patients)](#how-hospitals-are-supporting-the-covid-hoax-and-killing-patients)
-- [Find out about the man who leads all you mask-wearers and vaccinators -Anthony Fauci-](#find-out-about-the-man-who-leads-all-you-mask-wearers-and-vaccinators--anthony-fauci-)
-- [Question One ...](#question-one-)
-- [Question Two](#question-two)
-- [Question Three](#question-three)
-- [Question Four ...](#question-four-)
+- [Find out about the Number 1 vaccine pusher -Anthony Fauci-](#find-out-about-the-number-1-vaccine-pusher--anthony-fauci-)
+- [Find out about the Number 2 vaccine pusher -Bill Gates-](#find-out-about-the-number-2-vaccine-pusher--bill-gates-)
+- [Personal Questions and statements](#personal-questions-and-statements)
+    - [One](#one)
+    - [Two](#two)
+    - [Three](#three)
+    - [Four ...](#four-)
+- [How and why hospitals are killing you and sending a body back saying "Covid" death on certificate](#how-and-why-hospitals-are-killing-you-and-sending-a-body-back-saying-covid-death-on-certificate)
 - [Turn Off your television, radio and newspaper - they are Lying to you -](#turn-off-your-television-radio-and-newspaper---they-are-lying-to-you--)
 - [It has all been one Big Lie](#it-has-all-been-one-big-lie)
 - [Dead or injured after Vaccine](#dead-or-injured-after-vaccine)
@@ -21,13 +25,23 @@
 
 <!-- markdown-toc end -->
 
+## Brave members of EU parliament speak out
+[These people are 100 times braver than my neighbors here in Vilcabamba]
+(https://www.infowars.com/posts/watch-eu-parliament-members-call-for-freedom-end-of-covid-lockdowns-censorship-discrimination/)\
+- “It’s time for scientists and doctors to speak, it’s time for an open debate and good solutions, not censorship and propaganda.”
+- "Why are so many people being hospitalized and dying here in Italy in spite of the 90% of Italians being fully vaccinated?"
+- "What we see right now is that the EU is transitioning from Democracy to tyranny in relation to the Vaccines and Covid-19”
+- "Liberty and freedom are fundamental rights for people the Governments have to respect." 
+
+
 ## Most Important Quotes - they told you
 
 [WHO world health director says vaccines should not be used to *kill children*](https://twitter.com/poore56/status/1473426380670980097)
 " **It is wrong to use these vaccines to kill children** "\
-*comment*:  "If it is wrong to kill children with the vaccine, is it okay to kill adults with the vaccine?"
+*comment*:  "If it is wrong to kill children with the vaccine, is it okay to kill adults with the vaccine?"\
+*my answer* "There are a lot of stupid-assholes running around as adults -i encourage them to take their vaccines."
 
-[Senior USA senator says " *millions have died from this vaccine* ](https://www.mediaite.com/tv/dick-durbin-torches-anti-vaxx-quacks-tucker-carlson-and-laura-ingraham-in-senate-floor-speech-i-hope-fox-will-come-to-its-senses/) \
+[Senior USA senator says " **millions have died from this vaccine** " ](https://www.mediaite.com/tv/dick-durbin-torches-anti-vaxx-quacks-tucker-carlson-and-laura-ingraham-in-senate-floor-speech-i-hope-fox-will-come-to-its-senses/) \
 *comment*:  "start at time 1:20 in video"
 
 ## The Plan
@@ -53,8 +67,12 @@ reduce the popluation so only 1 in 20 people alive today will survive.
 
 [President of EU parliament dies from rapid onset of aids due to vaccine ... and other videos of shaking and paralysis after Vaccine](https://www.bitchute.com/video/mdK8K1KHDIAC/)
 
+## Forced Vaccination video  haha
+[ what they want ](https://www.bitchute.com/video/G0Rn6N6hXmsD/)
 
 ## How hospitals are supporting the Covid hoax (and killing patients)
+
+(https://www.bitchute.com/video/hTO6nTPjaiJ0/)
 
 [Hospitals paid to list deaths as COVID-virus](https://www.organiclifestylemagazine.com/cdc-admits-finacial-hospital-incentives-drove-up-covid-19-death-rates)
 
@@ -87,19 +105,23 @@ to Vilcabamba. How is it that not one of these people -and myself- have suffered
 more than normal colds and flu? We **avoid** hospitals -maybe that is part of our continuing
 health.
 
-## Two
+### Two
 [The fatality rate for the disease is estimated to be 0.0016% for children under ten. ](https://uk.news.yahoo.com/coronavirus-puzzle-why-risk-death-140222308.html)\
 *comment*:  Why is the government trying to vaccinate children when they have less that 1 in 50,000 chance of dying 
 of "Covid-19" ?
 
-## Three
+### Three
 What do you think is an appropriate penalty for someone who injures or kills a child?
 If a child is injured or disabled by application of a vaccine who are you going to hold responsible?
 
-## Four ...
+### Four ...
 If the government was really concerned with your health, why have they forced
 workers and businesses to shut down for long periods -at the same time requiring that
 the banks continue to be paid?
+
+## How and why hospitals are killing you and sending a body back saying "Covid" death on certificate
+
+[Hospitals are being paid to kill you **spanish subtitles** ](https://www.bitchute.com/video/Fh8ATZpGzNuZ/)
 
 ## Turn Off your television, radio and newspaper - they are Lying to you -
 
@@ -169,6 +191,17 @@ vaccines and force them on others. Smart ..."
 [Scientific studies showing Natural Immunity better than dangerous or life-threatening vaccines)](https://brownstone.org/articles/79-research-studies-affirm-naturally-acquired-immunity-to-covid-19-documented-linked-and-quoted/)
 
 ## Children
+
+[6-year-old boy dies after first dose of COVID-19 vaccine](https://www.bitchute.com/video/podNLqyyFUZZ/)\
+**more information in video**
+- residents in nursing homes dying of vaccination
+- the more you are vaccinated the more sick you will become
+- Dr. Merritt: retired President Association of American Physicians and Surgeons "This is a full-scale de-population agenda 
+being carried out."
+- Dr. Sukarit Bhakti: "These Covid vaccinations are killing people, both the young and old."
+- Dr. Peter Mcullough: "These vaccines will kill many more people than Covid ever did."
+
+
 [ USA: COVID Vaccines For Kids Under 5 Could Be Approved By Next Month](https://www.huffpost.com/entry/pfizer-covid-vaccine-children-under-5_n_61e97aaae4b0a864b07d2ce9?utm_source=spotim&utm_medium=spotim_recirculation)
 
 Australian kids reportedly collapsed at Qudos Bank Arena vaccination hub today!
