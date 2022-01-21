@@ -2,9 +2,8 @@
 <!-- markdown-toc start - Don't edit this section. Run M-x markdown-toc-refresh-toc -->
 **Table of Contents**
 
-- [Most Important Quote -think about it- they told you](#most-important-quote--think-about-it--they-told-you)
+- [Most Important Quotes - they told you](#most-important-quotes---they-told-you)
 - [The Plan](#the-plan)
-- [They told you so, but you still want to play dumb?](#they-told-you-so-but-you-still-want-to-play-dumb)
 - [How hospitals are supporting the Covid hoax (and killing patients)](#how-hospitals-are-supporting-the-covid-hoax-and-killing-patients)
 - [Find out about the man who leads all you mask-wearers and vaccinators -Anthony Fauci-](#find-out-about-the-man-who-leads-all-you-mask-wearers-and-vaccinators--anthony-fauci-)
 - [Question One ...](#question-one-)
@@ -28,7 +27,7 @@
 " **It is wrong to use these vaccines to kill children** "\
 *comment*:  "If it is wrong to kill children with the vaccine, is it okay to kill adults with the vaccine?"
 
-[Senior USA senator says " *millions have died from this vaccine* ](https://www.mediaite.com/tv/dick-durbin-torches-anti-vaxx-quacks-tucker-carlson-and-laura-ingraham-in-senate-floor-speech-i-hope-fox-will-come-to-its-senses/) 
+[Senior USA senator says " *millions have died from this vaccine* ](https://www.mediaite.com/tv/dick-durbin-torches-anti-vaxx-quacks-tucker-carlson-and-laura-ingraham-in-senate-floor-speech-i-hope-fox-will-come-to-its-senses/) \
 *comment*:  "start at time 1:20 in video"
 
 ## The Plan
@@ -41,20 +40,15 @@ most notable etched writing on these stones says… " Maintain the human
 population of Earth under 500 million people ." That means the intent to
 reduce the popluation so only 1 in 20 people alive today will survive.
 
-This plan is being carried out today primarily through vaccines. So, the
-rest of the references following will deal with our vaccine situation.
-
 ["World Court" says if you (or your child) die from vaccine you cannot prosecute anyone for murder](https://tapnewswire.com/2022/01/the-media-manipulate-us-and-lie-to-us-lets-know-how-to-sort-the-wheat-from-the-chaff/)
 
 [Australia officially tells Doctors they cannot speak out against the vaccine ](https://odysee.com/@OurFreeSociety:2/Australian-GPs---doctors-being-theatened:b)
 
 [The "FDA" want to hide Pfizer documents showing deaths and side-effects for 75 years](https://www.euroweeklynews.com/2021/12/09/fda-says-it-needs-75-years-to-release-pfizer-covid-19-vaccine-data-to-the-public/)
 
-[After you have received a vaccine, you begin to lose natural immunity against Covid variants, and other virus](https://elcolectivodeuno.wordpress.com/2021/12/19/british-government-admits-that-vaccines-have-damaged-the-natural-immune-system-of-people-who-have-received-a-double-vaccination/)
-*comment*:  "That means your ability to resist infection goes down after vaccination. The article also claims the effect
-may be permanent and cumulative."
+[After you have received a vaccine, you begin to lose natural immunity against ... everything ](https://elcolectivodeuno.wordpress.com/2021/12/19/british-government-admits-that-vaccines-have-damaged-the-natural-immune-system-of-people-who-have-received-a-double-vaccination/)\
 
-[US capital building, the "White House", now guarded against bombs, missiles, revolution of masses, armed attack by Zombies -fortified as if an embassy in hostile country](https://www.bitchute.com/video/jSzxpakcIQwY/) 
+[US capital building, the "White House", now guarded against bombs, missiles, revolution of masses, armed attack by Zombies -fortified as if an embassy in hostile country](https://www.bitchute.com/video/jSzxpakcIQwY/) \
 *comment*:  "What do they know you don't?"
 
 [President of EU parliament dies from rapid onset of aids due to vaccine ... and other videos of shaking and paralysis after Vaccine](https://www.bitchute.com/video/mdK8K1KHDIAC/)
@@ -67,16 +61,24 @@ may be permanent and cumulative."
 [Whistleblower Nurse: CDC Protocol 'Is Killing Covid Patients' (Video)](https://rairfoundation.com/whistleblower-nurse-cdc-protocol-is-killing-covid-patients-video/)
 *comment*:  It turns out hospitals and their workers are just as dumb and greedy as you. 
 
-## Find out about the man who leads all you mask-wearers and vaccinators -Anthony Fauci-
-[The nephew of America's greatest modern President -John F. Kennedy- wrote a  book
-exposing the leader of Vaccine pushing Worldwide ](https://www.bitchute.com/video/aaSaAho6uVPA/) 
+## Find out about the Number 1 vaccine pusher -Anthony Fauci-
+[The nephew of America's greatest modern President -John F. Kennedy- wrote a book
+exposing him ](https://www.bitchute.com/video/aaSaAho6uVPA/) 
 "*Anthony Fauci * 
 - cut the vocal cords of puppies and held them in cages to be eaten by sand flees 
 - injected babies with known deadly drugs and even after they began dying, 
 continued the experiment claiming the drugs were not the cause ..."
-- and so much more ...
+- funded, concealed and lied about his connection in **creating** the Covid-19 virus
+- has profited from the production and use of the vaccines
 
-## Question One ...
+## Find out about the Number 2 vaccine pusher -Bill Gates-
+
+[Bill Gates wants to kill one billion people](https://www.youtube.com/watch?v=oWxsEAmh85Q)
+
+[Bill Gates linked to the biggest and most famous "pedophile" in USA](https://nypost.com/2021/09/22/bill-gates-squirms-when-asked-about-jeffrey-epstein-ties/)
+
+## Personal Questions and statements
+### One
 I have not worn a mask in two years nor been vaccinated. I **do not** spend any amount
 of time with vaccinated or mask-wearing individuals. My social interactions include all
 normal hugging, kissing and distance as before 2 years ago. My honest estimate is that my
@@ -85,40 +87,36 @@ to Vilcabamba. How is it that not one of these people -and myself- have suffered
 more than normal colds and flu? We **avoid** hospitals -maybe that is part of our continuing
 health.
 
-## Question Two
-Why is the government trying to vaccinate children when they have less that 1 in 50,000 chance
-of "dying"  from a Covid infection? 
-[The fatality rate for the disease is estimated to be 0.0016% for children under ten. A child has less than 1 in 50.000 chance of dying from the virus. so, why are they trying to vaccinate children (or anyone else) with a potentially deadly vaccine?](https://uk.news.yahoo.com/coronavirus-puzzle-why-risk-death-140222308.html)
+## Two
+[The fatality rate for the disease is estimated to be 0.0016% for children under ten. ](https://uk.news.yahoo.com/coronavirus-puzzle-why-risk-death-140222308.html)\
+*comment*:  Why is the government trying to vaccinate children when they have less that 1 in 50,000 chance of dying 
+of "Covid-19" ?
 
-## Question Three
+## Three
 What do you think is an appropriate penalty for someone who injures or kills a child?
-So if a child is injured or disabled by application of a vaccine ...
+If a child is injured or disabled by application of a vaccine who are you going to hold responsible?
 
-## Question Four ...
+## Four ...
 If the government was really concerned with your health, why have they forced
-you -for long periods- to close or reduce hours for businesses and reduce their clients
-so that the businesses are taking in much less money, but they still need to pay the Banks?
-Everyone has to maintain some flow of money into and out of their possesion, but the
-lockdowns attacked our ability. They also reduced our ability to communicate with each other
-about our local situation, leaving us dependant on the big media companies to give
-us information through -primarily here- the television.
+workers and businesses to shut down for long periods -at the same time requiring that
+the banks continue to be paid?
 
-## Turn Off your television, radio and newspaper - they are Lying to you - 
+## Turn Off your television, radio and newspaper - they are Lying to you -
 
-[China using Holographic news personalities] (https://hw.infowars.com/posts/china-reveals-ai-news-anchor-almost-indistinguishable-from-real-human/)
+[China using Holographic news personalities](https://hw.infowars.com/posts/china-reveals-ai-news-anchor-almost-indistinguishable-from-real-human/)
 
 [Liers in the media - puppets repeating the same lines for the gullible](https://www.bitchute.com/video/YputqsltlH5K/)
 
-[More liers repeating the **exact same lines** in the news](https://www.huffpost.com/entry/local-news-phrase-conan_n_4460787)
+[More liers repeating the **exact same lines** in the news](https://www.huffpost.com/entry/local-news-phrase-conan_n_4460787)\
 *comment*:  "Who is writing these lines and how is it that these *independant* news channels are saying the *exact same thing*?"
 
 ## It has all been one Big Lie
-[Tanzanian president **tests goat and papaya** for coronavirus and the result is positive!"]
-(https://globalnews.ca/news/6910821/coronavirus-papaya-goat-tanzania/)
 
-[Top officials admit hospitalized cases -for instance "hurt their finger"- listed as "new covid case"] (https://www.bitchute.com/video/Fm2UQpy9BXE/)
+[Tanzanian president **tests goat and papaya** for coronavirus and the result is positive!](https://globalnews.ca/news/6910821/coronavirus-papaya-goat-tanzania/)
 
-[Covid infections and deaths increase after the first vaccine dose] (https://alexberenson.substack.com/p/covid-infections-and-deaths-soar)
+[Top officials admit hospitalized cases -for instance "hurt their finger"- listed as "new covid case"](https://www.bitchute.com/video/Fm2UQpy9BXE/)
+
+[Covid infections and deaths increase after the first vaccine dose](https://alexberenson.substack.com/p/covid-infections-and-deaths-soar)
 
 [Government Data: COVID Infections, Deaths Soar After Vaccination](https://www.infowars.com/posts/government-data-covid-infections-deaths-soar-after-vaccination/)
 
@@ -134,20 +132,22 @@ us information through -primarily here- the television.
 
 [13 yr old formerly healthy girl killed by pfizer spends final pain filled days in diapers](https://www.bitchute.com/video/pLKG8jyryN59/)
 
-[Champion Mountain Biker injured by vaccine](https://www.youtube.com/watch?v=H7inaTiDKaU)"maybe 60 people have contacted me with stories of their damage from the vaccines"
+[Champion Mountain Biker injured by vaccine](https://www.youtube.com/watch?v=H7inaTiDKaU)\
+"after my vaccine injury i received messages from over 60 people initially with their own stories of
+problems after being vaccinated."
 
 [removed from instagram-vaxxed just days ago, falls dead before boarding a plane](https://www.bitchute.com/video/pFoVF9N1ceFf/)
 
 [Here is some of that new normal - reporter collapses while reporting booster line waiting for vaccine](https://www.bitchute.com/video/t0QylaDq59NA/)
 
-[Major airline pilot warns other pilots of his life-threatening experience after being vaccinated] (https://www.infowars.com/posts/major-airline-pilot-describes-heart-problems-following-covid-vaccine-i-could-have-stroked-out-at-100-feet-trying-to-land-an-airplane/)
+[Major airline pilot warns other pilots of his life-threatening experience after being vaccinated](https://www.infowars.com/posts/major-airline-pilot-describes-heart-problems-following-covid-vaccine-i-could-have-stroked-out-at-100-feet-trying-to-land-an-airplane/)
 
-[Inventor of major technology used in vaccines says "I took the vaccine twice and almost died."] (https://thecovidworld.com/robert-malone-the-story-of-my-vaccine-injury-i-almost-died/?fbclid=IwAR35tSolOhSTi5didipuCsqRNQWLrLc3r4_3tFsOhV3BWXud6QB8KwtEdHc)
+[Inventor of major technology used in vaccines says "I took the vaccine twice and almost died."](https://thecovidworld.com/robert-malone-the-story-of-my-vaccine-injury-i-almost-died/?fbclid=IwAR35tSolOhSTi5didipuCsqRNQWLrLc3r4_3tFsOhV3BWXud6QB8KwtEdHc)
 
 ## Miscellaneous news
 
-[Cannabis compounds could prevent Covid: study](https://www.rt.com/news/545824-cannabis-prevent-treat-covid/) 
-" I am sorry i included this, but hey -waking up will take you a lot of places. Did you know before the Pharma
+[Cannabis compounds could prevent Covid: study](https://www.rt.com/news/545824-cannabis-prevent-treat-covid/) \
+*comment*:  " I am sorry i included this, but hey -waking up will take you a lot of places. Did you know before the Pharma
 companinies -like Pfizer- took over the medical industry, that 40% of mom-and-pop businesses selling remedies
 included cannabis as part of their prescription? And while you agree to swat-team old Gringoes growing a few
 pot plants for their own consumption -something that may be beneficial-, you will likewise agree to take massively deadly
@@ -161,8 +161,8 @@ vaccines and force them on others. Smart ..."
 
 [Dr. Robert Malone is a scientist sometimes referred to as "the inventor of modern vaccine technology."](https://childrenshealthdefense.org/defender/justin-williams-robert-malone-fully-vaccinated-covid-super-spreaders/) “The idea that a person being vaccinated stops the spreading the virus is totally false. A total lie.”
 
-[Top Vaccine pusher in USA (auci) connected to experiments involving torture and death of puppies](https://nypost.com/2021/10/27/fauci-slammed-by-beagle-organization-over-alleged-experiments/)
-It's not hard to believe, because he is recommending everyone (including children) take multiple vaccines and possibly suffer horrifying disease and death.
+[Top Vaccine pusher in USA (Fauci) connected to experiments involving torture and death of puppies](https://nypost.com/2021/10/27/fauci-slammed-by-beagle-organization-over-alleged-experiments/)\
+*comment*:  It's not hard to believe, because he is recommending everyone (including children) take multiple vaccines and possibly suffer horrifying disease and death.
 
 ## This is a big ONE
 
@@ -171,10 +171,9 @@ It's not hard to believe, because he is recommending everyone (including childre
 ## Children
 [ USA: COVID Vaccines For Kids Under 5 Could Be Approved By Next Month](https://www.huffpost.com/entry/pfizer-covid-vaccine-children-under-5_n_61e97aaae4b0a864b07d2ce9?utm_source=spotim&utm_medium=spotim_recirculation)
 
-[Australian kids reportedly collapsed at Qudos Bank Arena vaccination hub today]! 
+Australian kids reportedly collapsed at Qudos Bank Arena vaccination hub today!
 (pic.twitter.com/FHit3OXkvu) — Nicola Charles (@nicola1charles) August 17, 2021
-*This Tweet has been removed by Twitter*
-*comment*:  "Uh-Oh, it seems like Twitter has removed this link -I wonder why? 
+**This Tweet has been removed by Twitter**
 
 [Australian army veteran: 3 of the 24 000 children vaccinated at a stadium are now officially dead](https://freewestmedia.com/2021/08/23/australian-army-veteran-3-of-the-24-000-children-vaccinated-at-a-stadium-are-now-dead/)
 "Parents were refused entry to the stadium in Sydney Olympic Park while their children were injected. 
@@ -197,16 +196,20 @@ to hospital for *any cause* will instead be officially listed as a "Covid" case.
 
 ## VAERS database and official "side-effects" possible from vaccines
 
-[The Vaers database, allows physicians and others to report deaths or health injuries from vaccines.](https://www.cdc.gov/vaccinesafety/ensuringsafety/monitoring/vaers/index.html)
-
-Some authorities advocate *multiplying the numbers below by 10x-100x times* to be more to be accurate.
+[The Vaers database, allows physicians and others to report deaths or health injuries from vaccines.](https://www.cdc.gov/vaccinesafety/ensuringsafety/monitoring/vaers/index.html)\
+*comment*: Authorities advocate *multiplying the numbers below by 10x-100x times* to be more to be accurate.\
 Why? Because most doctors and patients are not told about the database.
 
-Number of Adverse Reactions 913,268 Number of Life-Threatening Events
-21,582 Number of Hospitalizations 97,561 Number of Deaths 19,249 Number
-of Permanent Disabilities after vaccination 30,967 Number of Office
-Visits 143,275 Number of Emergency Room/Department Visits 101,315 Number
-of Birth Defects after vaccination 671
+updated through: 1/7/2022
+
+- Number of Adverse Reactions 1,033,994
+- Number of Life-Threatening Events 24,790
+- Number of Hospitalizations 115,754
+- Number of Deaths 21,745*
+- Number of Permanent Disabilities after vaccination 37,937
+- Number of Office Visits 161,438
+- Number of Emergency Room/Department Visits 112,146
+- Number of Birth Defects after vaccination 808
 
 [Possible Vaccine side effects according to the United States agency "FDA."](https://www.christianitydaily.com/articles/13138/20210903/fda-knew-what-the-covid-vaccine-s-side-effects-were-before-it-became-available-but-approved-it-anyway.htm )
 
@@ -221,8 +224,7 @@ intravascular coagulation, venous thromboembolism, arthritis and
 arthralgia/joint pain, Kawasaki disease, multisystem inflammatory
 syndrome in children, and vaccine enhanced disease.
 
-_Vaccinated become more clinically ill than the unvaccinated._
-
+- *Vaccinated become more clinically ill than the unvaccinated.*\
 Scotland reported that the infection fatality rate in the vaccinated is
 3.3 times the unvaccinated, and the risk of death if hospitalized is
 2.15 times the unvaccinated. Public Health Scotland - COVID-19
@@ -233,12 +235,9 @@ Statistical Report - Publication date: 04 August 2021
 [More vaccinated, more sick ](https://www.globalresearch.ca/high-recorded-mortality-in-countries-categorized-as-covid-19-vaccine-champions-increased-hospitalization/5757173 )
 
 ## Athletes dying and falling sick
-[Triple jabbed Swiss marathon record holder and Olympic athlete diagnosed with myocarditis]
-(https://freewestmedia.com/2022/01/11/tripple-jabbed-swiss-marathon-record-holder-and-olympic-athlete-diagnosed-with-myocarditis/)
+[Triple jabbed Swiss marathon record holder and Olympic athlete diagnosed with myocarditis](https://freewestmedia.com/2022/01/11/tripple-jabbed-swiss-marathon-record-holder-and-olympic-athlete-diagnosed-with-myocarditis/)
 
-[BRAZILIAN SOCCER PLAYER HAS HEART ATTACK DAYS AFTER THE JAB]
-(https://www.bitchute.com/video/AvTPXZ1H4sdM/)
-
+[BRAZILIAN SOCCER PLAYER HAS HEART ATTACK DAYS AFTER THE JAB](https://www.bitchute.com/video/AvTPXZ1H4sdM/)
 
 [10, 2021, Healthy athletes collapsing of heart attacks and strokes december](https://stevekirsch.substack.com/p/athlete-collapsesdeaths-following)
 
