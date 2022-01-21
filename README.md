@@ -26,8 +26,7 @@
 <!-- markdown-toc end -->
 
 ## Brave members of EU parliament speak out
-[These people are 100 times braver than my neighbors here in Vilcabamba]
-(https://www.infowars.com/posts/watch-eu-parliament-members-call-for-freedom-end-of-covid-lockdowns-censorship-discrimination/)\
+[These people are 100 times braver than my neighbors here in Vilcabamba](https://www.infowars.com/posts/watch-eu-parliament-members-call-for-freedom-end-of-covid-lockdowns-censorship-discrimination/)\
 - “It’s time for scientists and doctors to speak, it’s time for an open debate and good solutions, not censorship and propaganda.”
 - "Why are so many people being hospitalized and dying here in Italy in spite of the 90% of Italians being fully vaccinated?"
 - "What we see right now is that the EU is transitioning from Democracy to tyranny in relation to the Vaccines and Covid-19”
