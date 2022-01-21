@@ -26,12 +26,13 @@
 <!-- markdown-toc end -->
 
 ## Brave members of EU parliament speak out
-[These people are 100 times braver than my neighbors here in Vilcabamba](https://www.infowars.com/posts/watch-eu-parliament-members-call-for-freedom-end-of-covid-lockdowns-censorship-discrimination/)\
+
+[There is so much censorship and threats, these are helpful and brave people](https://www.infowars.com/posts/watch-eu-parliament-members-call-for-freedom-end-of-covid-lockdowns-censorship-discrimination/)\
 - “It’s time for scientists and doctors to speak, it’s time for an open debate and good solutions, not censorship and propaganda.”
 - "Why are so many people being hospitalized and dying here in Italy in spite of the 90% of Italians being fully vaccinated?"
 - "What we see right now is that the EU is transitioning from Democracy to tyranny in relation to the Vaccines and Covid-19”
-- "Liberty and freedom are fundamental rights for people the Governments have to respect." 
-
+- "Liberty and freedom are fundamental rights for people the Governments have to respect." \
+*comment*:  It's as simple as this. It is the world depopulation plan in action.
 
 ## Most Important Quotes - they told you
 
@@ -69,12 +70,13 @@ reduce the popluation so only 1 in 20 people alive today will survive.
 [Specific numbered groups of Pfizer vaccines implicated in deaths](https://redice.tv/news/only-certain-covid-vaccine-lots-caused-all-the-deaths-this-is-impossible-exposes-criminal-intent)\
 *comment*:  What this means is Pfizer specifically mixed up lots of vaccines so the deaths would be spread out. So your brother got maybe a lethal injection but you got salt-water. Confusing? That's the point.
 
-## Forced Vaccination video  haha
-[ what they want ](https://www.bitchute.com/video/G0Rn6N6hXmsD/)
+## Forced Vaccination video  
+[ what they want ](https://www.bitchute.com/video/G0Rn6N6hXmsD/)\
+*comment*:  Frightening, but whether forced or not, people and children are dying from the vaccines.
 
 ## How hospitals are supporting the Covid hoax (and killing patients)
 
-(https://www.bitchute.com/video/hTO6nTPjaiJ0/)
+[reference one](https://www.bitchute.com/video/hTO6nTPjaiJ0/)
 
 [Hospitals paid to list deaths as COVID-virus](https://www.organiclifestylemagazine.com/cdc-admits-finacial-hospital-incentives-drove-up-covid-19-death-rates)
 
