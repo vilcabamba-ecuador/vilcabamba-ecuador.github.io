@@ -67,6 +67,9 @@ reduce the popluation so only 1 in 20 people alive today will survive.
 
 [President of EU parliament dies from rapid onset of aids due to vaccine ... and other videos of shaking and paralysis after Vaccine](https://www.bitchute.com/video/mdK8K1KHDIAC/)
 
+[Specific numbered groups of Pfizer vaccines implicated in deaths](https://redice.tv/news/only-certain-covid-vaccine-lots-caused-all-the-deaths-this-is-impossible-exposes-criminal-intent)\
+*comment*:  What this means is Pfizer specifically mixed up lots of vaccines so the deaths would be spread out. So your brother got maybe a lethal injection but you got salt-water. Confusing? That's the point.
+
 ## Forced Vaccination video  haha
 [ what they want ](https://www.bitchute.com/video/G0Rn6N6hXmsD/)
 
