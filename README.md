@@ -1,29 +1,28 @@
  
- **Tabla de contenidos**
+<!-- markdown-toc start - Don't edit this section. Run M-x markdown-toc-refresh-toc -->
+**Table of Contents**
 
-- [Los miembros del Parlamento de la UE hablan](#miembros cerebro-de-eu-parlament-speak-out)
-- [La mayoría de las citas importantes - te lo dijeron] (la mayoría de las citas importantes-- - ellos-te dijeron)
-- [El Plan](#el plan)
-- [Vídeo de Vacunación Forzada] (Vídeo de Vacunación Forzada)
-- [Cómo los hospitales están apoyando al Hoax Covid (y matando pacientes)] (#how-hospitals-are-supporting-the-covid-hoax-and-killing-patients)
-- [Averiguar sobre el impulsor de la vacuna número 1 -Anthony Fauci-](#find-out-about-the-number-1-vaccine-pusher--anthony-fauci-)
-- [Averiguar sobre el impulsor de la vacuna número 2 -Bill Gates-](#find-out-about-the-number-2-vaccine-pusher--bill-gates-)
-- [Preguntas y declaraciones personales] (preguntas personales y declaraciones)
-- [Uno]
-- [Dos](#dos)
-- [Tres](#tres)
-- [Cuatro ...](#cuatro-)
-- [Cómo y por qué los hospitales te matan y envían un cuerpo de vuelta diciendo "Covid" la muerte en el certificado] (cómo y por qué-hospitals-estás matando-y-sending-a-body-back-saying-covid-death-on-certificate)
-- [Turn Off your television, radio and newspaper - they are Lying to you -](#turn-off-your-television-radio-and-newspaper---they-est-se-lying-to-you--)
-- Todo ha sido una gran mentira.
-- [Muerto o herido después de la vacuna](#dead-or-injured-after-vaccine)
-- [Noticias diversas] (noticias diversas)
-- [Este es un gran uno] (
-- [Niños]
-- [Base de datos y "efectos secundarios" oficiales posibles de las vacunas](#vaers-database-and-official-side-effects-possible-from-vaccines)
-- [Athletes muriendo y enfermando](#athletes-dying-and-falling-sick)
+- [Most Important Quotes - they told you](#most-important-quotes---they-told-you)
+- [El Plan](#el-plan)
+- [Forced Vaccination video](#forced-vaccination-video)
+- [Cómo los hospitales están apoyando al Covid Hoax (y los pacientes que matan)](#cómo-los-hospitales-están-apoyando-al-covid-hoax-y-los-pacientes-que-matan)
+- [Averigüe sobre el impulsor de la vacuna número 1 -Anthony Fauci-](#averigüe-sobre-el-impulsor-de-la-vacuna-número-1--anthony-fauci-)
+- [Averigüe sobre el impulsor de 2 vacunas -Bill Gates-](#averigüe-sobre-el-impulsor-de-2-vacunas--bill-gates-)
+- [Preguntas y declaraciones personales](#preguntas-y-declaraciones-personales)
+    - [-](#-)
+    - [Dos.](#dos)
+    - [Tres.](#tres)
+- [¿Cómo y por qué los hospitales te están matando y enviando un cuerpo de vuelta diciendo la muerte de Covid en el certificado](#cómo-y-por-qué-los-hospitales-te-están-matando-y-enviando-un-cuerpo-de-vuelta-diciendo-la-muerte-de-covid-en-el-certificado)
+- [Turn Fuera de su televisión, radio y periódico - que están mintiendo a usted -](#turn-fuera-de-su-televisión-radio-y-periódico---que-están-mintiendo-a-usted--)
+- [Todo ha sido una gran mentira](#todo-ha-sido-una-gran-mentira)
+- [Muerto o herido después de la vacuna](#muerto-o-herido-después-de-la-vacuna)
+- [Miscellaneous news](#miscellaneous-news)
+- [Esta es una grande](#esta-es-una-grande)
+- [Children](#children)
+- [Base de datos VAERS y efectos secundarios oficiales posibles de las vacunas](#base-de-datos-vaers-y-efectos-secundarios-oficiales-posibles-de-las-vacunas)
+- [Mas de 300 Atletas muriendo y enfermando de las vacunas (Noticias hasta Noviembre, 2020)](#mas-de-300-atletas-muriendo-y-enfermando-de-las-vacunas-noticias-hasta-noviembre-2020)
 
- final de marcado-toc 
+<!-- markdown-toc end -->
  
  ## Los miembros valientes del Parlamento de la UE hablan
 
@@ -36,6 +35,11 @@ comentario: Es tan simple como esto. Es el plan mundial de despoblación en acci
 
 ## Most Important Quotes - they told you
 
+comentario: Cuando te dijeron que pusieras máscaras. Cuando te dijeron que había un virus mortalmente invisible. Cuando ellos
+les dijo que se inyectaran con algo de lo que saben * absolutamente nada*. Lo hiciste. Sin embargo,
+sin embargo ( ... ) usted es ; cuando comenzaron a utilizar su ( ... ) para potencialmente dañar y matar niños,
+es cuando te pongo esto en la cara, como tu máscara. Por lo tanto, ahora no puede alegar ignorancia".
+
 [El director de salud mundial de la OMS dice que las vacunas no deben utilizarse para eliminar a los niños*](https://twitter.com/poore56/status/1473426380670980097)
 " *Es incorrecto usar estas vacunas para matar a niños*
 comentario: "Si es incorrecto matar niños con la vacuna, ¿está bien matar adultos con la vacuna?"
@@ -43,6 +47,11 @@ comentario: "Si es incorrecto matar niños con la vacuna, ¿está bien matar adu
 
 [El senador de EE.UU. dijo: " * Millones han muerto de esta vacuna*"(https://www.mediaite.com/tv/dick-durbin-torches-anti-vaxx-quacks-tucker-carlson-and-laura-ingraham-in-senate-floor-i-hope-fox-will-come-to-itsenses) \
 comentario: "A la hora 1:20 en video"
+
+[ Criminales Panic : Head UN Scientist advierte contra los niños recibiendo COVID Vax Booster](https://www.bitchute.com/video/JwrKphhMfkkh )
+
+[ Journo de El Mayor Diario de herencia en USA dice que será recordado como "Crímenes Morales Catástricos" " El Covid " ]( https://www.infowars.com/posts/im-done-ex-nyt-journo-blasts-govt-covid-tyranny-says-will-be-remembered-as-catastrophic-moral-crime )\
+"Tengo muchos amigos, muchos periodistas en los medios de comunicación, que tienen miedo de hablar porque perderán su trabajo o peor".
 
 ## El Plan
 [World Depopulation ]( https://thinkaboutit.news/georgia-guidestones-commissioned-by-mystery-man Los líderes en casi todos los países están respondiendo a un plan mundial.
@@ -270,7 +279,7 @@ Informe estadístico - Fecha de publicación: 04 de agosto de 2021
 
 [Más vacunado, más enfermo](https://www.globalresearch.ca/high-recorded-mortality-in-countries-categorized-as-covid-19-vaccine-champions-increased-hospitalization/5757173 )
 
-## Atletas muriendo y enfermando
+## Mas de 300 Atletas muriendo y enfermando de las vacunas (Noticias hasta Noviembre, 2020)
 
 [Triple jabbed Swiss marathon record holder and Olympic at diagnosed with myocarditis](https://freewestmedia.com/2022/01/11/tripple-jabbed-swiss-marathon-record-holder-and-olympic-athlete-diagnosed-with-myocarditis/)
 
