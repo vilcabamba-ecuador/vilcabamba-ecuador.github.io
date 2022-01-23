@@ -81,7 +81,8 @@ reducir la polución así que sólo 1 de cada 20 personas vivas hoy sobrevivirá
 [Grupos considerables de vacunas contra el Pfizer implicados en muertes](https://redice.tv/news/only-certain-covid-vaccine-lots-Caused-all-the-deaths- this-is-impossible-criminal-intent)\
 *comentario*: Lo que esto significa es que Pfizer mezcla específicamente un montón de vacunas para que las muertes se propagaran. Así que tu hermano tiene una inyección letal pero tienes agua salada. ¿Confundir? Ese es el punto.
 
-### Forced Vaccination video
+### Video de vacunación forzada 
+
 [lo que quieren](https://www.bitchute.com/video/G0Rn6N6hXmsD/)\
 *Comentario*: Aterrador, pero forzado o no, las personas y los niños están muriendo de las vacunas.
 
@@ -174,7 +175,7 @@ problemas después de ser vacunados."
 
 [ Inventor de la tecnología principal utilizada en las vacunas dice " Tomé la vacuna dos veces y casi morí " ](https://thecovidworld.com/robert-malone-the-story-of-my-vaccine-injury-i-almost-died/?fbclid=IwAR35tSolOhSTi5dipuCsqRNQWLrLcrLcrLcrLcr3)
 
-### Miscellaneous news
+### Noticias diversas
 
 [El médico exige la investigación y la parada inmediata para “Vaccines”](https://www.infowars.com/posts/doctor-demands-investigation-and-immediate-stop-to-vaccines/)
 
@@ -200,7 +201,7 @@ vacunas y las obliga a otros. Inteligente.
 
 [Estudios científicos que muestran mejor la inmunidad natural que las vacunas peligrosas o potencialmente mortales](https://brownstone.org/articles/79-research-studies-affirm-naturally-acquired-inmunity-to-covid-19-documented-and-quoted/)
 
-### Children
+### Niños
 
 [El niño de 6 años muere después de la primera dosis de la vacuna COVID-19](https://www.bitchute.com/video/podNLqyFUZZ/)\
 *Más información en vídeo**
