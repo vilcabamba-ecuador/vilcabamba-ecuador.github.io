@@ -27,7 +27,7 @@
  
 ## Los miembros valientes del Parlamento de la UE hablan
 
-[Hay tanta censura y amenazas, son personas útiles y valientes](https://www.infowars.com/posts/watch-eu-parliament-members-call-for-freedom-end-of-covid-lockdowns-censorship-discrimination/)\
+[Hay tanta censura y amenazas, son personas útiles y valientes](https://www.infowars.com/posts/watch-eu-parliament-members-call-for-freedom-end-of-covid-lockdowns-censorship-discrimination/)
 - “Es hora de que los científicos y los médicos hablen, es hora de un debate abierto y buenas soluciones, no de censura y propaganda. ”
 - "¿Por qué tanta gente está hospitalizada y muriendo aquí en Italia a pesar de que el 90% de los italianos están siendo vacunados?"
 - "Lo que vemos ahora es que la UE está pasando de la democracia a la tiranía en relación con las vacunas y Covid-19"
@@ -111,8 +111,9 @@ continuó el experimento alegando que las drogas no eran la causa ".
 [Bill Gates linked to the largest and most known pedophile in USA](https://nypost.com/2021/09/22/bill-gates-squirms-when-asked-about-jeffrey-epstein-ties/)
 
 ## Preguntas y declaraciones personales
+
 #### Uno
-No he usado una máscara en dos años ni he sido vacunado. *no gastar ninguna cantidad*
+- No he usado una máscara en dos años ni he sido vacunado. *no gastar ninguna cantidad*
 de tiempo con individuos vacunados o enmascarados. Mis interacciones sociales incluyen todas
 normal abrazar, besar y distancia como antes hace 2 años. Mi estimación honesta es que mi
 grupo de contactos incluye 50 locales y breves períodos alrededor de 100 visitantes internacionales
@@ -121,16 +122,16 @@ más que los resfriados normales y la gripe? Evitamos los hospitales -quizás es
 salud.
 
 #### Dos.
-[Se calcula que la tasa de mortalidad de la enfermedad es de 0.0016% para niños menores de 10 años. ](https://uk.news.yahoo.com/coronavirus-puzzle-why-risk-death-140222308.html) \
+- [Se calcula que la tasa de mortalidad de la enfermedad es de 0.0016% para niños menores de 10 años. ](https://uk.news.yahoo.com/coronavirus-puzzle-why-risk-death-140222308.html) \
 comentario: ¿Por qué el gobierno intenta vacunar a los niños cuando tienen menos de 1 en 50.000 posibilidades de morir?
 de Covid-19 ?
 
 #### Tres.
-¿Qué crees que es una pena apropiada para alguien que lesiona o mata a un niño?
+- ¿Qué crees que es una pena apropiada para alguien que lesiona o mata a un niño?
 Si un niño es lesionado o discapacitado por la aplicación de una vacuna que va a responsabilizarse?
 
 Cuatro.
-Si el gobierno estaba realmente preocupado con su salud, ¿por qué han forzado
+- Si el gobierno estaba realmente preocupado con su salud, ¿por qué han forzado
 trabajadores y empresas para cerrar durante largos períodos - al mismo tiempo que requieren que
 ¿Los bancos siguen siendo pagados?
 
