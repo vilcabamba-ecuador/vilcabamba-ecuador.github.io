@@ -65,7 +65,7 @@ reducir la polución así que sólo 1 de cada 20 personas vivas hoy sobrevivirá
 
 ["Tribunal Mundial" dice que si usted (o su hijo) muere de la vacuna no puede procesar a nadie por asesinato](https://tapnewswire.com/2022/01/the-media-manipulate-us-and-lie-to-us-lets-know-how-to-sort-the-wheat-from-the-chaff/)
 
-[Lo dice oficialmente Australia] Médicos que no pueden hablar contra la vacuna ](https://odysee.com/@OurFreeSociety:2/Australian-GPs---doctors-ser-theatened:b)
+[Lo dice oficialmente Australia Médicos que no pueden hablar contra la vacuna ](https://odysee.com/@OurFreeSociety:2/Australian-GPs---doctors-ser-theatened:b)
 
 [La FDA quiere ocultar documentos de Pfizer que muestran muertes y efectos secundarios durante 75 años](https://www.euroweeklynews.com/2021/12/09/fda-says-it-neceds-75-years-to-release-pfizer-covid-19-vaccine-data-to-the-public/)
 
@@ -85,12 +85,11 @@ Comentario: Aterrador, pero forzado o no, las personas y los niños están murie
 
 ## Cómo los hospitales están apoyando al Covid Hoax (y los pacientes que matan)
 
-[ Referencia Uno ]
-(https://www.bitchute.com/video/hTO6nTPjaiJ0/)
+[ Referencia Uno ](https://www.bitchute.com/video/hTO6nTPjaiJ0/)
 
 [Hospitals paid to list deaths as COVID-virus](https://www.organiclifestylemagazine.com/cdc-admits-finacial-hospital-incentives-drove-up-covid-19-death-rates)
 
-[Enfermera de denunciantes: Protocolo del CDC "Está matando a pacientes copos"](https://rairfoundation.com/whistleblower-nurse-cdc-protocol-is-killing-covid-patients-video/)
+[Enfermera de denunciantes: Protocolo del CDC "Está matando a pacientes copos"](https://rairfoundation.com/whistleblower-nurse-cdc-protocol-is-killing-covid-patients-video/)\
 comentario: Resulta que los hospitales y sus trabajadores son tan tontos y codiciosos como tú.
 
 ## Averigüe sobre el impulsor de la vacuna número 1 -Anthony Fauci-
@@ -167,7 +166,7 @@ comentario: "¿Quién está escribiendo estas líneas y cómo es que estos canal
 
 [13 yr old formerly healthy girl killed by pfizer spends final pain filled days in pañales](https://www.bitchute.com/video/pLKG8jyryN59/)
 
-[Montión de Champión Biker injured by vaccine](https://www.youtube.com/watch?v=H7inaTiDKaU)\
+[Montión de Champión Biker injured by vaccine](https://www.youtube.com/watch?v=H7inaTiDKaU)
 "después de mi lesión en la vacuna recibí mensajes de más de 60 personas inicialmente con sus propias historias de
 problemas después de ser vacunados."
 
@@ -175,9 +174,9 @@ problemas después de ser vacunados."
 
 [Here is some of that new normal - reporter collapses while reporting booster line waiting for vaccine](https://www.bitchute.com/video/t0QylaDq59NA/)
 
-[El piloto de la aerolínea principal advierte a otros pilotos de su experiencia vital después de ser vacunado]( https://www.infowars.com/posts/major-airline-pilot-describes-heart-problems-following-covid-vaccine-i-could-have-stroked-out-at-100-feet-trying-to-land-an-airplane/ )
+[El piloto de la aerolínea principal advierte a otros pilotos de su experiencia vital después de ser vacunado]( https://www.infowars.com/posts/major-airline-pilot-describes-heart-problems-following-covid-vaccine-i-could-have-stroked-out-at-100-feet-trying-to-land-an-airplane/)
 
-[Inventor de la tecnología principal utilizada en las vacunas dice: "Tomé la vacuna dos veces y casi morí " ](https://thecovidworld.com/robert-malone-the-story-of-my-vaccine-injury-i-almost-died/?fbclid=IwAR35tSolOhSTi5dipuCsqRNQWLrLcrLcrLcrLcr3
+[ Inventor de la tecnología principal utilizada en las vacunas dice " Tomé la vacuna dos veces y casi morí " ](https://thecovidworld.com/robert-malone-the-story-of-my-vaccine-injury-i-almost-died/?fbclid=IwAR35tSolOhSTi5dipuCsqRNQWLrLcrLcrLcrLcr3)
 
 ## Miscellaneous news
 
@@ -288,7 +287,7 @@ Informe estadístico - Fecha de publicación: 04 de agosto de 2021
 
 [10, 2021, Deportistas sanos que desplomaron ataques cardíacos y golpes de diciembre](https://stevekirsch.substack.com/p/athlete-collapsesdeaths-siguiendo)
 
-[Dinamarca del juego en uefa euro 2020 suspendido después de que el jugador colapse sobre el terreno](https://cdn.substack.com/image/fetch/f_auto,q_auto:good,fl_progressive:steep/https%3a%2f%2fbucketeer-e05bbc84-baa3-437e-9518-adb32be77982
+[Dinamarca del juego en uefa euro 2020 suspendido después de que el jugador colapse sobre el terreno]( https://cnnespanol.cnn.com/gallery/fotos-momentos-de-angustia-tras-el-colapso-del-futbolista-christian-eriksen-en-la-euro-2020-orix/ )
 
 [01/01/21, Blake Barklage (17,) Colapsed and died with cardiac arrest](https://dailyvoice.com/new-jersey/fortlee/police-fire/suburban-philly-hs-athlete-dies-of-sudden-cardiac-incident-report-says/819211/)
 
@@ -296,7 +295,7 @@ Informe estadístico - Fecha de publicación: 04 de agosto de 2021
 
 [09/01/21. Jordan Glenn, jugador de baloncesto de Wisconsin. Colapsed transferred to hospital by Ambulance.](https://www.athleticbusiness.com/operations/safety-security/article/15160693/wisconsin-hs-basketball-player-collapses-on-court)
 
-[30/01/21] Wayne Radford, estrella del NBA y ex estrella del equipo de Indianápolis, murió repentinamente en casa](https://www.thedailyhoosier.com/iu-basketball-1976-national-champion-and-former-indiana-pacer-wayne-radford-passes-away/)
+[30/01/21 Wayne Radford, estrella del NBA y ex estrella del equipo de Indianápolis, murió repentinamente en casa](https://www.thedailyhoosier.com/iu-basketball-1976-national-champion-and-former-indiana-pacer-wayne-radford-passes-away/)
 
 [30/01/21, Garissone Innocent (20,) colapsó y se desmayó sin poder hablar ni respirar.](https://www.thesun.co.uk/sport/football/13901939/goalkeepers-rushed-hospital-collapsing/)
 
@@ -341,13 +340,13 @@ Video https://www.youtube.com/watch?v=cvPQO44NzN4
 
 [04/21, Giuseppe Perrino (29), futbolista profesional, colapsó y murió durante el partido](https://www.the-sun.com/sport/premier-league/3008376/giuseppe-perrino-dead-29-parma-brother/))
 
-[9/04/21] baloncesto masculino de Bert Smith NCAA Referee colapsó debido a un coágulo de sangre en su pulmón durante un torneo](https://www.espn.com/mens-college-basketball/story/_/id/31222546/referee-bert-smith-says-blood-clot-lung-Caused-fall-ncaa-tourney)
+[9/04/21 baloncesto masculino de Bert Smith NCAA Referee colapsó debido a un coágulo de sangre en su pulmón durante un torneo](https://www.espn.com/mens-college-basketball/story/_/id/31222546/referee-bert-smith-says-blood-clot-lung-Caused-fall-ncaa-tourney)
 
-[12/04/21] Dejan Oršuš (24) se derrumbó de un ataque al corazón y murió posteriormente en el Hospital del Condado de Čakovec.](https://www.slobodenpecat.mk/en/tragedija-vo-hrvatska-pochina-24-godishen-fudbaler/)
+[12/04/21 Dejan Oršuš (24) se derrumbó de un ataque al corazón y murió posteriormente en el Hospital del Condado de Čakovec.](https://www.slobodenpecat.mk/en/tragedija-vo-hrvatska-pochina-24-godishen-fudbaler/)
 
-[18/04/21] Tremaine Stewart (32), futbolista jamaiquino colapsó y murió durante la ronda anterior a un partido.](https://www.voice-online.co.uk/sport/football/2021/04/19/former-reggae-boy-tremaine-tan-stewart-collapses-during-match-and-dies/)
+[18/04/21 Tremaine Stewart (32), futbolista jamaiquino colapsó y murió durante la ronda anterior a un partido.](https://www.voice-online.co.uk/sport/football/2021/04/19/former-reggae-boy-tremaine-tan-stewart-collapses-during-match-and-dies/)
 
-[22/04/21, Craig Jones (29) La correa negra campeona brasileña Jiu-Jitsu no puede entrenar ni luchar después de una inyección de COVID](https://teapartypac.org/3-jiu-jitsu-fighter-in-the-world-craig-jones-unable-to-fight-after-covid-caus-fluid-builduptom/sus-s-
+[22/04/21 Craig Jones (29) La correa negra campeona brasileña Jiu-Jitsu no puede entrenar ni luchar después de una inyección de COVID](https://teapartypac.org/3-jiu-jitsu-fighter-in-the-world-craig-jones-unable-to-fight-after-covid-vaccine-causes-fluid-buildup-around-his-stomach/)
 
 [24/04/21, Luis Ojeda (20,) El futbolista argentino falleció inesperadamente](https://www.antena3.com/noticias/deportes/futbol/emotiva-carta-lola-ortiz-muerte-novio-futbolista-luis-ojeda-soporto-idea-volver-verte-nunca-mas_692021020)
 
@@ -369,7 +368,7 @@ Video https://www.youtube.com/watch?v=cvPQO44NzN4
 
 [04/06/21 Giuseppe Perrino, de 29 años, de Fujimarino, Italia. Colapsed and died during a game](https://www.thesun.co.uk/sport/football/15151824/giuseppe-perrino-dead-29-parma-brother/)
 
-[05/06/21 Maxim Ishkeldin (30,) campeón mundial de hockey sobre campo, murió repentinamente como resultado de la coagulación sanguínea](https://www.tellerreport.com/sports/2021-06-07-%E2%80%9Cit%E2%80%99s-imposible-to-believe-such-news-right-away%E2%80%9D--world-campe-max-chish
+[05/06/21 Maxim Ishkeldin (30) campeón mundial de hockey sobre campo, murió repentinamente como resultado de la coagulación sanguínea]( https://www.tellerreport.com/sports/2021-06-07-%E2%80%9Cit%E2%80%99s-impossible-to-believe-such-news-right-away%E2%80%9D--world-field-hockey-champion-maxim-ishkeldin-dies-at-the-age-of-30.rJMZiQwj5d.html)
 
 [07/06/21, Michael Schneider (38,) Profesional de tenis de mesa de Alemania, murió de repente e inesperadamente.](https://www-osthessen--zeitung-de.translate.goog/einzelansicht/news/2021/juni/nachruf-tischtennis-kreis-trauert-um-michael-schneider.html)
 
@@ -381,7 +380,7 @@ Video https://www.youtube.com/watch?v=cvPQO44NzN4
 
 [17/06/21 Frederic Lott, equipo de Salouël RC en Francia, colapso y paro cardíaco en entrenamiento de equipo](https://www.stripersonline.com/surftalk/topic/837428-mrna-vaccines-the-leading-of-coincidences)
 
-[18/06/21 Robert Lima (49), ex futbolista de Olympia colapsó y murió de paro cardíaco mientras jugaba fútbol con amigos](https://www.archysport.com/2021/06/shock-in-uruguay-former-soccer-player-robert-lima-died-of-cardiac-arrest-and-hours-later-the-mother-of-his-children
+[18/06/21 Robert Lima (49), ex futbolista de Olympia colapsó y murió de paro cardíaco mientras jugaba fútbol con amigos](https://www.archysport.com/2021/06/shock-in-uruguay-former-soccer-player-robert-lima-died-of-cardiac-arrest-and-hours-later-the-mother-of-his-children)
 
 [19/06/21 Jose Edgar Preciado, caddie de golf colombiano sufre un ataque cardíaco fatal](https://www.thecaddienetwork.com/caddie-alberto-olguin-collapses-dies-during-pga-tour-latinoamerica-event/)
 
@@ -389,7 +388,7 @@ Video https://www.youtube.com/watch?v=cvPQO44NzN4
 
 [21/06/21 Victor Marcel Hegedus (18,) futbolista húngaro. Colapsed and died during a training warm-up](https://www.budapestherald.hu/sport/2021/06/26/an-18-year-old-hungarian-football-collapsed-and-died-during-training/)
 
-[23/06/21 Christophe Lemeiter, esprinter francés. Retirada después de reacciones negativas a la vacuna coronavirus.](https://france3-regions.francetvinfo.fr/auvergne-rhone-alpes/savoie/athletisme-apres-une-mauvaise-reaction-au-vaccin-anti-covid-christophe-lemaitre-s-inquiete-pour-les-jo-56toky56-39.
+[23/06/21 Christophe Lemeiter, esprinter francés. Retirada después de reacciones negativas a la vacuna coronavirus](https://www.sgtreport.com/2021/12/young-athletes-dying-after-covid-19-vaccine/)
 
 [25/06/21, Ethan Jovani Trejo (16) futbolista, colapsó sobre el terreno durante el entrenamiento](https://cincinnati.com/story/news/2021/06/25/teen-dies-after-medical-incident-princeton-high-school-field/5344293001/)
 
@@ -446,8 +445,7 @@ Video https://www.youtube.com/watch?v=cvPQO44NzN4
 
 [02/08/21, Stephen Sylvester (15,) futbol y atleta de pista colapsaron y murieron durante la práctica](https://www.theoaklandpress.com/2021/08/10/catholic-central-mourning-the-loss-of-football-track-athlete-stephen-sylvester/)
 
-[04/08/21, Tirrell Williams (19) Fort Scott freshman lineman murió después de colapsar en el campo durante la práctica]
-(https://www.newsbreak.com/news/2349788120190/sadness-engulfs-fort-scott-football-program-as-williams-dies-sellowing-on-field-collapse)
+[04/08/21, Tirrell Williams (19) Fort Scott freshman lineman murió después de colapsar en el campo durante la práctica](https://www.newsbreak.com/news/2349788120190/sadness-engulfs-fort-scott-football-program-as-williams-dies-sellowing-on-field-collapse)
 
 [07/08/21, Rune Coghe (18) Belga KFC Eendracht Hooglede footballer suffers cardiac arrest on pitch](https://www.sudinfo.be/id409738/article/2021-08-07/rune-jeune-joueur-de-18-ans-secroule-sur-le-terrain-du-rds-plus-le-temps-passe)
 
@@ -467,7 +465,7 @@ Video https://www.youtube.com/watch?v=cvPQO44NzN4
 
 [ 14/08/21, Dimitri McKee (17) Lee High School El futbolista falleció y murió después de la práctica ](https://www.wbrc.com/2021/08/14/lee-high-school-football-player-dimitri-mckee-dies/)
 
-[15/08/21, Jeremy Chardy (34), tenista profesional, se retira después de “Violento, casi paralizante dolor” después de la vacuna Covid-19)(https://www.rt.com/sport/535829-jeremy-chardy-covid-vaccine-reaction/)
+[15/08/21, Jeremy Chardy (34) tenista profesional, se retira después de “Violento, casi paralizante dolor” después de la vacuna Covid-19)(https://www.rt.com/sport/535829-jeremy-chardy-covid-vaccine-reaction/)
 
 [15/08/21 Marco Tampwo (19,) Atletico Fioghi footballer from Rome, died of a cardiac arrest](https://www.italy24news.com//160390.html)
 
@@ -489,13 +487,11 @@ Otros tres jóvenes ciclistas belgas (Kempen) sufren problemas cardíacos tras l
 
 [22/08/21, Alexaida Guedez (30) Campeón de Maratón Nacional de Venezuela colapsó y murió en una carrera de 5 k](https://today.in-24.com/sport//103507.html)
 
-[Sharanovich (45) ex huelguista de Primorja severo ataque cardíaco, murió varios días después]
-(https://tiool.com/poland/aidan-sharanovich-pogo-shizikens-wicketkeeper-has-died/)
+[Sharanovich (45) ex huelguista de Primorja severo ataque cardíaco, murió varios días después](https://tiool.com/poland/aidan-sharanovich-pogo-shizikens-wicketkeeper-has-died/)
 
 [24/08/2021, José dos Reis (29) colapsó sobre el terreno](http://www.lessentiel.lu/de/sport/sports_in_luxemburg/story/luxemburger-fu-baller-ereilt-eriksen-schicksal-15405892)
 
-[24/08/21, Jack Alkhatib (18,) Columbia El futbolista de la secundaria colapsó en el campo y murió]
-(https://www.wistv.com/2021/09/04/he-would-love-it-donadrian-robinsons-family-reacts-tribute-wj-keenan-high-school/?outputType=apps)
+[24/08/21, Jack Alkhatib (18,) Columbia El futbolista de la secundaria colapsó en el campo y murió](https://www.wistv.com/2021/09/04/he-would-love-it-donadrian-robinsons-family-reacts-tribute-wj-keenan-high-school/?outputType=apps)
 
 [25/08/21 Vinny Curry (33,) Nueva York Jets profesionales se jubilan con coágulos de sangre](https://theathletic.com/news/jets-vinny-curry-will-miss-entire-2021-season-due-to-rare-blood-disorder/UjttzRpsRXpK/)
 
@@ -524,8 +520,8 @@ Otros tres jóvenes ciclistas belgas (Kempen) sufren problemas cardíacos tras l
 [05/09/21 Florian Ploner (22), jugador de balonmano para SC Ferlach se desploma durante el juego.](https://www.kleinezeitung.at/sport/sommersport/ballsport/handball/6029793/Handball_Nach-Zusammenbruch-durfte-Florian-Ploner-das-Krankenhaus)
 
 [05/09/21 PA, Jalen Leavey, (19,) futbolista colapsó y murió inesperadamente después de un partido universitario.](https://neshobademocrat.com/stories/philadelphia-student-collapses-dies-on-eccc-campus,51420)
-[6/09/21 Paul Zipser (27,) Bayern Munich adelante (Basketball,) hemorragia cerebral relacionada con la vacuna]
-(https://www.eurohoops.net/en/euroleague/1217599/bayerns-zipser-successfully-operated-for-brain-hemorrhage/)
+
+[6/09/21 Paul Zipser (27) Bayern Munich adelante hemorragia cerebral relacionada con la vacuna](https://www.eurohoops.net/en/euroleague/1217599/bayerns-zipser-successfully-operated-for-brain-hemorrhage/)
 
 [07/09/21, Dylan Rich (17) futbolista colapsó sobre el terreno y murió de un doble infarto](https://www.bbc.com/news/uk-england-nottinghamshire-58462925)
 
@@ -545,7 +541,7 @@ Otros tres jóvenes ciclistas belgas (Kempen) sufren problemas cardíacos tras l
 
 [12/09/21 Santo Giuliano (33) Profesional Dancer Sufre Ataque cardíaco 5 días después de recibir zapato de Pfizer](https://thecovidworld.com/santo-giuliano-33-year-old-professional-dancer-suffers-heart-attack-5-days-after-reception-the-pfizer-covid-19-vaccine/)
 
-[13/09/21] Anil Usta, turco nacional jugando para Vfb Schwelm (Ennepetal) colapsó en el campo con problemas cardíacos](https://www.wp.de/sport/lokalsport/ennepetal/schreck-in-schwelm-erinnerung-an-christian-eriksen-id233308343.html)
+[13/09/21 Anil Usta, turco nacional jugando para Vfb Schwelm (Ennepetal) colapsó en el campo con problemas cardíacos](https://www.wp.de/sport/lokalsport/ennepetal/schreck-in-schwelm-erinnerung-an-christian-eriksen-id233308343.html)
 
 [14/09/21 Parys Haralson (37) ex futbolista profesional muere de repente."](https://mississippitoday.org/2021/09/16/parys-haralson-death-friends-teammates/)
 
@@ -553,7 +549,7 @@ Otros tres jóvenes ciclistas belgas (Kempen) sufren problemas cardíacos tras l
 
 [16/09/21 Imogen Allen (24,) ecuestre femenino, campeón mostrar reacción severa y coágulos de sangre después de la vacuna](https://www.dailymail.co.uk/news/article-9993515/Show-jumper-22-suffered-extremely-rare-reaction-Moderna-vaccine-never-ride-again.html)
 
-[17/09/21 John Stokes (21,) myocarditis cuatro días después de su segunda dosis de Pfizer.](https://www.riotimesonline.com/brazil-news/modern-day-censorship/ncaa-golfer-has-severe-adverse-heart-condition-due-to-covid-vaccine-speaks-out-against-vaccine-mandate
+[17/09/21 John Stokes (21) myocarditis cuatro días después de su segunda dosis de Pfizer](https://www.riotimesonline.com/brazil-news/modern-day-censorship/ncaa-golfer-has-severe-adverse-heart-condition-due-to-covid-vaccine-speaks-out-against-vaccine-mandate)
 
 [18/09/21, Kingsley Coman (25) from FC Bayern Munich had a heart operation after an arrhythmia ](https://sport.sky.de/fussball/artikel/fc-bayern-news-kingsley-coman-faellt-nach-herz-operation-aus/12410380/34090)
 
@@ -606,18 +602,15 @@ Otros tres jóvenes ciclistas belgas (Kempen) sufren problemas cardíacos tras l
 
 [09/10/21, segunda caddie de golf muere en evento profesional](https://www.thecaddienetwork.com/caddie-alberto-olguin-collapses-dies-during-pga-tour-latinoamerica-event/)
 
-[10/10/21, Pompeo Tretola (18,) futbolista de repente se desmaya en el campo, es revivido por su compañero de equipo.](https://casertace-net.translate.goog/guarda-il-video-giocatore-18enne-sviene-improvvisamente-in-campo-soccorso-hlda-un-avversario/?_x_tr=autor_)(https://casertace.net/il-video-giocatore-18enne-colto-da-malore-improvviso-in-campo-cosi-il-suo-avversario-lo-ha-salvato/)
+[10/10/21, Pompeo Tretola (18,) futbolista de repente se desmaya en el campo, es revivido por su compañero de equipo](https://casertace.net/il-video-giocatore-18enne-colto-da-malore-improvviso-in-campo-cosi-il-suo-avversario-lo-ha-salvato/)
 
-[10/10/21, el jugador de Saint-James sufre un ataque al corazón después de calentarse antes del juego]
-(https://actu-fr.translate.goog/normandie/avranches_50025/un-joueur-de-foot-fait-un-arret-cardiaque-avant-le-match-saint-james-contre-avranches_45566459.html?_xhl_tr=auto adult_x_tr_t
+[10/10/21, el jugador de Saint-James sufre un ataque al corazón después de calentarse antes del juego] (https://actu.fr/normandie/avranches_50025/un-joueur-de-foot-fait-un-arret-cardiaque-avant-le-match-saint-james-contre-avranches_45566459.html?_xhl_tr=auto)
 
-[Daniel Aakervik (17,) uno de los mayores talentos de esquí de fondo de Noruega suspendió su temporada después de una severa reacción a la vacunación contra el COVID.]
-(https://www-langrenn-com.translate.goog/et-av-landets-storste-langrennstalenter-slatt-ut-av-covid-19-vaksinen.6421290-1743.html?_x_tr_sl=no aceptar_x_tl=en pacientes_x_
+[Daniel Aakervik (17) uno de los mayores talentos de esquí de fondo de Noruega suspendió su temporada después de una severa reacción a la vacunación contra el COVID] (https://www.langrenn.com/)
 
-[12/10/21 Ewan Fraser (30,) jugador de hockey de campo de Glasgow colapsó con paro cardíaco]
-(https://www.thescottishsun.co.uk/news/7832060/glasgow-hockey-died-collapse-life/)
+[12/10/21 Ewan Fraser (30,) jugador de hockey de campo de Glasgow colapsó con paro cardíaco](https://www.thescottishsun.co.uk/news/7832060/glasgow-hockey-died-collapse-life/)
 
-[12/10/21 Lukas Bommer (25,) portero de HC TuRa Bergkamen, murió de repente e inesperadamente.]
+[12/10/21 Lukas Bommer (25,) portero de HC TuRa Bergkamen, murió de repente e inesperadamente](https://brjm.org/2021/12/318-athlete-cardiac-arrests-after-covid-vax/)
 
 [13/10/21, Fellipe de Jesus Moreira (18) futbolista profesional sufrió un doble infarto.](https://remonews.com/brazileng/serie-a-club-player-suffers-two-cardiac-arrests-and-is-in-serious-condition-sport/)
 
