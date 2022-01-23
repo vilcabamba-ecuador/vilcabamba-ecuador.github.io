@@ -24,7 +24,9 @@
 - [Mas de 300 Atletas muriendo y enfermando de las vacunas (Noticias hasta Noviembre, 2020)](#mas-de-300-atletas-muriendo-y-enfermando-de-las-vacunas-noticias-hasta-noviembre-2020)
 
 <!-- markdown-toc end -->
- 
+
+~hipervínculo en vivo arriba para teclar y accesar los hipervínculos en Documento en vivo~
+
 ## Los miembros valientes del Parlamento de la UE hablan
 
 [Hay tanta censura y amenazas, son personas útiles y valientes](https://www.infowars.com/posts/watch-eu-parliament-members-call-for-freedom-end-of-covid-lockdowns-censorship-discrimination/)
