@@ -5,7 +5,7 @@
 - [Most Important Quotes - they told you](#most-important-quotes---they-told-you)
 - [El Plan](#el-plan)
 - [Forced Vaccination video](#forced-vaccination-video)
-- [Cómo los hospitales están apoyando al Covid Hoax (y los pacientes que matan)](#cómo-los-hospitales-están-apoyando-al-covid-hoax-y-los-pacientes-que-matan)
+- [Cómo losospitales están apoyando al Covid Hoax (y los pacientes que matan)](#cómo-los-hospitales-están-apoyando-al-covid-hoax-y-los-pacientes-que-matan)
 - [Averigüe sobre el impulsor de la vacuna número 1 -Anthony Fauci-](#averigüe-sobre-el-impulsor-de-la-vacuna-número-1--anthony-fauci-)
 - [Averigüe sobre el impulsor de 2 vacunas -Bill Gates-](#averigüe-sobre-el-impulsor-de-2-vacunas--bill-gates-)
 - [Preguntas y declaraciones personales](#preguntas-y-declaraciones-personales)
@@ -85,6 +85,7 @@ Comentario: Aterrador, pero forzado o no, las personas y los niños están murie
 
 ## Cómo los hospitales están apoyando al Covid Hoax (y los pacientes que matan)
 
+[ Referencia Uno ]
 (https://www.bitchute.com/video/hTO6nTPjaiJ0/)
 
 [Hospitals paid to list deaths as COVID-virus](https://www.organiclifestylemagazine.com/cdc-admits-finacial-hospital-incentives-drove-up-covid-19-death-rates)
@@ -150,7 +151,7 @@ comentario: "¿Quién está escribiendo estas líneas y cómo es que estos canal
 
 [Los altos funcionarios admiten casos hospitalizados -por ejemplo "caer su dedo"- enumerados como "nuevo caso covid"](https://www.bitchute.com/video/Fm2UQpy9BXE/)
 
-[Las infecciones y las muertes corporales aumentan después de la primera dosis de vacuna] (https://alexberenson.substack.com/p/covid-infections-and-deaths-soar)
+[Las infecciones y las muertes corporales aumentan después de la primera dosis de vacuna ](https://alexberenson.substack.com/p/covid-infections-and-deaths-soar)
 
 [ Datos del Gobierno: infecciones de COVID, muertes después de la vacunación](https://www.infowars.com/posts/government-data-covid-infections-deaths-soar-after-vaccination/)
 
@@ -162,7 +163,7 @@ comentario: "¿Quién está escribiendo estas líneas y cómo es que estos canal
 
 ## Muerto o herido después de la vacuna
 
-[Recibida por vacuna el mismo día, actualizó su foto de perfil] (https://www.bitchute.com/video/hRctuMG4gYyG/)
+[Recibida por vacuna el mismo día, actualizó su foto de perfil](https://www.bitchute.com/video/hRctuMG4gYyG/)
 
 [13 yr old formerly healthy girl killed by pfizer spends final pain filled days in pañales](https://www.bitchute.com/video/pLKG8jyryN59/)
 
@@ -170,13 +171,13 @@ comentario: "¿Quién está escribiendo estas líneas y cómo es que estos canal
 "después de mi lesión en la vacuna recibí mensajes de más de 60 personas inicialmente con sus propias historias de
 problemas después de ser vacunados."
 
-[removido de instagram-vaxxed hace unos días, cae muerto antes de abordar un avión] (https://www.bitchute.com/video/pFoVF9N1ceFf/)
+[removido de instagram-vaxxed hace unos días, cae muerto antes de abordar un avión](https://www.bitchute.com/video/pFoVF9N1ceFf/)
 
 [Here is some of that new normal - reporter collapses while reporting booster line waiting for vaccine](https://www.bitchute.com/video/t0QylaDq59NA/)
 
-[El piloto de la aerolínea principal advierte a otros pilotos de su experiencia vital después de ser vacunado](https://www.infowars.com/posts/major-airline-pilot-describes-heart-problems-sellowing-covid-vaccine-i-could-have-stroked-out-at-100-feet-landing
+[El piloto de la aerolínea principal advierte a otros pilotos de su experiencia vital después de ser vacunado]( https://www.infowars.com/posts/major-airline-pilot-describes-heart-problems-following-covid-vaccine-i-could-have-stroked-out-at-100-feet-trying-to-land-an-airplane/ )
 
-[Inventor de la tecnología principal utilizada en las vacunas dice: "Tomé la vacuna dos veces y casi morí."](https://thecovidworld.com/robert-malone-the-story-of-my-vaccine-injury-i-almost-died/?fbclid=IwAR35tSolOhSTi5dipuCsqRNQWLrLcrLcrLcrLcr3
+[Inventor de la tecnología principal utilizada en las vacunas dice: "Tomé la vacuna dos veces y casi morí " ](https://thecovidworld.com/robert-malone-the-story-of-my-vaccine-injury-i-almost-died/?fbclid=IwAR35tSolOhSTi5dipuCsqRNQWLrLcrLcrLcrLcr3
 
 ## Miscellaneous news
 
