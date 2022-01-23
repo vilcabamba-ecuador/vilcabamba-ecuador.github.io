@@ -616,10 +616,9 @@ Otros tres jóvenes ciclistas belgas (Kempen) sufren problemas cardíacos tras l
 
 [14/10/21 David Jenkins (31), el medallista olímpico de plata y el entrenador de buceo británico murieron inesperadamente.](https://www.insidethegames.biz/articles/1114187/diving-coach-david-jenkins-olympics)
 
-[14/10/21, Gianni Moscon (27,) multiple bike champion, to undergo an operation because of severe cardiac arrhythmia.]
-(https://www.fanpage.it/sport/ciclismo/)
+[14/10/21, Gianni Moscon (27) multiple bike champion, to undergo an operation because of severe cardiac arrhythmia.](https://www.fanpage.it/sport/ciclismo/)
 
-[14/10/21 Ryan Bowman (29) Shrewsbury striker collapsed treated with extreme heart problems](https://www-shropshirestar-com.translate.goog/sport/football/shrewsbury-town-fc/2021/10/14/shrewsbury-striker-ryan-bowman-back-in-training-and-given-medication-after-heart-checks
+[14/10/21 Ryan Bowman (29) Shrewsbury striker collapsed treated with extreme heart problems](https://www-shropshirestar-com.translate.goog/sport/football/shrewsbury-town-fc/2021/10/14/shrewsbury-striker-ryan-bowman-back-in-training-and-given-medication-after-heart-checks)https://www.shropshirestar.com/sport/football/shrewsbury-town-fc/2021/10/14/shrewsbury-striker-ryan-bowman-back-in-training-and-given-medication-after-heart-checks/)
 
 [14/10/21, Referee colapsó y murió durante un partido Kreisliga B](https://www.wiesbadener-kurier.de/lokales/untertaunus/aarbergen/schiedsrichter-stirbt-auf-fussballplatz-in-aarbergen_24658995)
 
