@@ -2,10 +2,11 @@
 <!-- markdown-toc start - Don't edit this section. Run M-x markdown-toc-refresh-toc -->
 **Table of Contents**
 
+- [Los miembros valientes del Parlamento de la UE hablan](#los-miembros-valientes-del-parlamento-de-la-ue-hablan)
 - [Most Important Quotes - they told you](#most-important-quotes---they-told-you)
 - [El Plan](#el-plan)
 - [Forced Vaccination video](#forced-vaccination-video)
-- [Cómo losospitales están apoyando al Covid Hoax (y los pacientes que matan)](#cómo-los-hospitales-están-apoyando-al-covid-hoax-y-los-pacientes-que-matan)
+- [Cómo los hospitales están apoyando al Covid Hoax (y los pacientes que matan)](#cómo-los-hospitales-están-apoyando-al-covid-hoax-y-los-pacientes-que-matan)
 - [Averigüe sobre el impulsor de la vacuna número 1 -Anthony Fauci-](#averigüe-sobre-el-impulsor-de-la-vacuna-número-1--anthony-fauci-)
 - [Averigüe sobre el impulsor de 2 vacunas -Bill Gates-](#averigüe-sobre-el-impulsor-de-2-vacunas--bill-gates-)
 - [Preguntas y declaraciones personales](#preguntas-y-declaraciones-personales)
@@ -24,7 +25,7 @@
 
 <!-- markdown-toc end -->
  
- ## Los miembros valientes del Parlamento de la UE hablan
+## Los miembros valientes del Parlamento de la UE hablan
 
 [Hay tanta censura y amenazas, son personas útiles y valientes](https://www.infowars.com/posts/watch-eu-parliament-members-call-for-freedom-end-of-covid-lockdowns-censorship-discrimination/)\
 - “Es hora de que los científicos y los médicos hablen, es hora de un debate abierto y buenas soluciones, no de censura y propaganda. ”
