@@ -1,5 +1,6 @@
  
-~hipervínculo en vivo arriba para teclar y accesar los hipervínculos en Documento en vivo~
+Sun 23 Jan 2022 01:49:08 PM EST
+**dirección web arriba "para acceder" los hipervínculos en esta página**
 
 <!-- markdown-toc start - Don't edit this section. Run M-x markdown-toc-refresh-toc -->
 **Table of Contents**
@@ -49,8 +50,8 @@ comentario: "Si es incorrecto matar niños con la vacuna, ¿está bien matar adu
 *Mi respuesta* "Hay un montón de estúpidos agujeros corriendo como adultos - les animo a tomar sus vacunas,
 pero si hace a los niños..., "
 
-[El senador de EE.UU. dijo: " **Millones han muerto de esta vacuna** " ](https://www.mediaite.com/tv/dick-durbin-torches-anti-vaxx-quacks-tucker-carlson-and-laura-ingraham-in-senate-floor-i-hope-fox-will-come-to-itsenses) \
-comentario: "A la hora 1:20 en video"
+[El senador de EE.UU. dijo  ](https://www.mediaite.com/tv/dick-durbin-torches-anti-vaxx-quacks-tucker-carlson-and-laura-ingraham-in-senate-floor-i-hope-fox-will-come-to-itsenses) " **Millones han muerto de esta vacuna** "\
+*comentario*: "A la hora 1:20 en video"
 
 [ Criminales Panic : Head UN Scientist advierte contra los niños recibiendo COVID Vax Booster](https://www.bitchute.com/video/JwrKphhMfkkh )
 
@@ -76,16 +77,16 @@ reducir la polución así que sólo 1 de cada 20 personas vivas hoy sobrevivirá
 [Después de haber recibido una vacuna, usted comienza a perder inmunidad natural contra ... todo ](https://elcolectivodeuno.wordpress.com/2021/12/19/british-government-admits-that-vaccines-have-damaged-the-natural-immune-of-people-who-have-received-a-double-vaccination/)\
 
 [Edificio de la capital estadounidense, la "Casa Blanca", ahora custodiado contra bombas, misiles, revolución de masas, ataque armado por Zombies -fortificado como una embajada en país hostil](https://www.bitchute.com/video/jSzxpakcIQwY) \
-comentario: "¿Qué saben que no?"
+*comentario*: "¿Qué saben que no?"
 
 [El Presidente del Parlamento de la Unión Europea muere el rápido comienzo de las ayudas debidas a la vacuna ... y otros vídeos de agitación y parálisis después de la vacuna](https://www.bitchute.com/video/mdK8KHDIAC/)
 
 [Grupos considerables de vacunas contra el Pfizer implicados en muertes](https://redice.tv/news/only-certain-covid-vaccine-lots-Caused-all-the-deaths- this-is-impossible-criminal-intent)\
-comentario: Lo que esto significa es que Pfizer mezcla específicamente un montón de vacunas para que las muertes se propagaran. Así que tu hermano tiene una inyección letal pero tienes agua salada. ¿Confundir? Ese es el punto.
+*comentario*: Lo que esto significa es que Pfizer mezcla específicamente un montón de vacunas para que las muertes se propagaran. Así que tu hermano tiene una inyección letal pero tienes agua salada. ¿Confundir? Ese es el punto.
 
 ## Forced Vaccination video
 [lo que quieren](https://www.bitchute.com/video/G0Rn6N6hXmsD/)\
-Comentario: Aterrador, pero forzado o no, las personas y los niños están muriendo de las vacunas.
+*Comentario*: Aterrador, pero forzado o no, las personas y los niños están muriendo de las vacunas.
 
 ## Cómo los hospitales están apoyando al Covid Hoax (y los pacientes que matan)
 
@@ -94,7 +95,7 @@ Comentario: Aterrador, pero forzado o no, las personas y los niños están murie
 [Hospitals paid to list deaths as COVID-virus](https://www.organiclifestylemagazine.com/cdc-admits-finacial-hospital-incentives-drove-up-covid-19-death-rates)
 
 [Enfermera de denunciantes: Protocolo del CDC "Está matando a pacientes copos"](https://rairfoundation.com/whistleblower-nurse-cdc-protocol-is-killing-covid-patients-video/)\
-comentario: Resulta que los hospitales y sus trabajadores son tan tontos y codiciosos como tú.
+*comentario*: Resulta que los hospitales y sus trabajadores son tan tontos y codiciosos como tú.
 
 ## Averigüe sobre el impulsor de la vacuna número 1 -Anthony Fauci-
 [El sobrino del presidente moderno más grande de América -John F. Kennedy- escribió un libro
@@ -114,7 +115,7 @@ continuó el experimento alegando que las drogas no eran la causa ".
 
 ## Preguntas y declaraciones personales
 
-#### Uno
+Uno
 - No he usado una máscara en dos años ni he sido vacunado. *no gastar ninguna cantidad*
 de tiempo con individuos vacunados o enmascarados. Mis interacciones sociales incluyen todas
 normal abrazar, besar y distancia como antes hace 2 años. Mi estimación honesta es que mi
@@ -123,12 +124,12 @@ a Vilcabamba. ¿Cómo es que ninguna de estas personas -y yo- ha sufrido nada
 más que los resfriados normales y la gripe? Evitamos los hospitales -quizás eso es parte de nuestro continuo
 salud.
 
-#### Dos.
+Dos.
 - [Se calcula que la tasa de mortalidad de la enfermedad es de 0.0016% para niños menores de 10 años. ](https://uk.news.yahoo.com/coronavirus-puzzle-why-risk-death-140222308.html) \
-comentario: ¿Por qué el gobierno intenta vacunar a los niños cuando tienen menos de 1 en 50.000 posibilidades de morir?
+*comentario*: ¿Por qué el gobierno intenta vacunar a los niños cuando tienen menos de 1 en 50.000 posibilidades de morir?
 de Covid-19 ?
 
-#### Tres.
+Tres.
 - ¿Qué crees que es una pena apropiada para alguien que lesiona o mata a un niño?
 Si un niño es lesionado o discapacitado por la aplicación de una vacuna que va a responsabilizarse?
 
@@ -138,7 +139,6 @@ trabajadores y empresas para cerrar durante largos períodos - al mismo tiempo q
 ¿Los bancos siguen siendo pagados?
 
 ## ¿Cómo y por qué los hospitales te están matando y enviando un cuerpo de vuelta diciendo la muerte de Covid en el certificado
-
 [Se paga a los hospitalarios para que lo maten * subtítulos españoles* ](https://www.bitchute.com/video/Fh8ATZpGzNuZ/)
 
 ## Turn Fuera de su televisión, radio y periódico - que están mintiendo a usted -
@@ -148,7 +148,7 @@ trabajadores y empresas para cerrar durante largos períodos - al mismo tiempo q
 [Liers in the media - títeres repeating the same lines for the gullible](https://www.bitchute.com/video/YputqsltlH5K/)
 
 [Más liras que repiten la *exactúan las mismas líneas* en las noticias](https://www.huffpost.com/entry/local-news-phrase-conan_n_4460787)\
-comentario: "¿Quién está escribiendo estas líneas y cómo es que estos canales de noticias independientes están diciendo la *exactúa misma cosa*?"
+*comentario*: "¿Quién está escribiendo estas líneas y cómo es que estos canales de noticias independientes están diciendo la *exactúa misma cosa*?"
 
 ## Todo ha sido una gran mentira
 
@@ -187,7 +187,7 @@ problemas después de ser vacunados."
 ## Miscellaneous news
 
 [Los compuestos del cannabis podrían prevenir a Covid: estudio](https://www.rt.com/news/545824-cannabis-prevent-treat-covid) \
-Comentario: "Lo siento, incluí esto, pero el despertar te llevará muchos lugares. ¿Lo sabías antes de la farmacia?
+*Comentario*: "Lo siento, incluí esto, pero el despertar te llevará muchos lugares. ¿Lo sabías antes de la farmacia?
 companinies -como Pfizer- tomó el control de la industria médica, ese 40% de las empresas de mamá y pop que venden remedios
 incluido el cannabis como parte de su prescripción? Y mientras usted está de acuerdo en cambiar a viejos Gringoes creciendo unos pocos
 plantas de olla para su propio consumo -algo que puede ser beneficioso,- usted también estará de acuerdo en tomar masivamente mortal
@@ -202,7 +202,7 @@ vacunas y las obliga a otros. Inteligente.
 [El Dr. Robert Malone es un científico a veces llamado "el inventor de la tecnología moderna de vacunas".](https://childrenshealthdefense.org/defender/justin-williams-robert-malone-fully-vaccinated-covid-super-spreaders) “La idea de que una persona vacunada detiene la propagación del virus es totalmente falsa. Una mentira total”.
 
 [Top Vaccine pusher in USA (Fauci) connected to experiments involving torture and death of puppies](https://nypost.com/2021/10/27/fauci-slammed-by-beagle-organization-over-alleged-experiments/)\
-comentario: No es difícil de creer, porque está recomendando a todos (incluidos los niños) que tomen múltiples vacunas y posiblemente sufran enfermedades y muertes horrorosas.
+*comentario*: No es difícil de creer, porque está recomendando a todos (incluidos los niños) que tomen múltiples vacunas y posiblemente sufran enfermedades y muertes horrorosas.
 
 ## Esta es una grande
 
@@ -248,7 +248,7 @@ al hospital para *cualquier causa* se enumerará oficialmente como un caso Covid
 ## Base de datos VAERS y efectos secundarios oficiales posibles de las vacunas
 
 [La base de datos de Vaers, permite a los médicos y a otros informar sobre las muertes o lesiones de salud de las vacunas.](https://www.cdc.gov/vaccinesafety/ensuringsafety/monitoring/vaers/index.html) \
-comentario: Las autoridades abogan por *multiplying the numbers below by 10x-100x times* to be more to be accurate.\
+*comentario*: Las autoridades abogan por *multiplying the numbers below by 10x-100x times* to be more to be accurate.\
 ¿Por qué? Porque a la mayoría de los médicos y pacientes no se les habla de la base de datos.
 
 actualizado a través de: 1/7/2022
