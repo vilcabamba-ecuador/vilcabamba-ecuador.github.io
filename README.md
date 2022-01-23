@@ -37,8 +37,7 @@ comentario: Es tan simple como esto. Es el plan mundial de despoblación en acci
 
 ## Más importante Citas - te dijeron
 
-comentario: Cuando te dijeron que pusieras máscaras. Cuando te dijeron que había un virus mortalmente invisible. Cuando ellos
-les dijo que se inyectaran con algo de lo que saben * absolutamente nada*. Lo hiciste. Sin embargo,
+*comentario:* Cuando te dijeron que pusieras máscaras. Cuando te dijeron que había un virus mortalmente invisible. Cuando ellos les dijo que se inyectaran con algo de lo que saben * absolutamente nada*. Lo hiciste. Sin embargo,
 sin embargo ( ... ) usted es ; cuando comenzaron a utilizar su ( ... ) para potencialmente dañar y matar niños,
 es cuando te pongo esto en la cara, como tu máscara. Por lo tanto, ahora no puede alegar ignorancia".
 
