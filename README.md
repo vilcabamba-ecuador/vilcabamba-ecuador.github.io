@@ -1,4 +1,6 @@
  
+~hipervínculo en vivo arriba para teclar y accesar los hipervínculos en Documento en vivo~
+
 <!-- markdown-toc start - Don't edit this section. Run M-x markdown-toc-refresh-toc -->
 **Table of Contents**
 
@@ -24,8 +26,6 @@
 - [Mas de 300 Atletas muriendo y enfermando de las vacunas (Noticias hasta Noviembre, 2020)](#mas-de-300-atletas-muriendo-y-enfermando-de-las-vacunas-noticias-hasta-noviembre-2020)
 
 <!-- markdown-toc end -->
-
-~hipervínculo en vivo arriba para teclar y accesar los hipervínculos en Documento en vivo~
 
 ## Los miembros valientes del Parlamento de la UE hablan
 
