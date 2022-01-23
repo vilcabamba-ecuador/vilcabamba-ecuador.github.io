@@ -618,21 +618,19 @@ Otros tres jóvenes ciclistas belgas (Kempen) sufren problemas cardíacos tras l
 
 [14/10/21, Gianni Moscon (27) multiple bike champion, to undergo an operation because of severe cardiac arrhythmia.](https://www.fanpage.it/sport/ciclismo/)
 
-[14/10/21 Ryan Bowman (29) Shrewsbury striker collapsed treated with extreme heart problems](https://www-shropshirestar-com.translate.goog/sport/football/shrewsbury-town-fc/2021/10/14/shrewsbury-striker-ryan-bowman-back-in-training-and-given-medication-after-heart-checks)https://www.shropshirestar.com/sport/football/shrewsbury-town-fc/2021/10/14/shrewsbury-striker-ryan-bowman-back-in-training-and-given-medication-after-heart-checks/)
+[14/10/21 Ryan Bowman (29) Shrewsbury striker collapsed treated with extreme heart problems](https://www-shropshirestar-com.translate.goog/sport/football/shrewsbury-town-fc/2021/10/14/shrewsbury-striker-ryan-bowman-back-in-training-and-given-medication-after-heart-checks)
 
 [14/10/21, Referee colapsó y murió durante un partido Kreisliga B](https://www.wiesbadener-kurier.de/lokales/untertaunus/aarbergen/schiedsrichter-stirbt-auf-fussballplatz-in-aarbergen_24658995)
 
 [15/10/21, Ava Azzopardi (14,) jugador de fútbol femenino colapsó en el campo mantenido en un coma artificial](https://www.abc.net.au/news/2021-10-18/teen-wakes-from-coma-after-cardiac-arrest-soccer-game/100547088)
 
-[16/10/21, Christophe Ramassamy (54) El jugador de AH y el ex árbitro colapsaron y murieron de un paro cardíaco durante un partido.]
-(https://new.in-24.com/sport//237528.html)
+[16/10/21, Christophe Ramassamy (54) El jugador de AH y el ex árbitro colapsaron y murieron de un paro cardíaco durante un partido](https://new.in-24.com/sport//237528.html)
 
 [Morando (37) futbolista colapsa durante el entrenamiento y la muerte](https://www.italy24news.com//225809.html)
 
 [Fathallah (32,) jugador de baloncesto colapsó durante el juego con ataque al corazón. Muerte en el hospital](https://middleeast.in-24.com/sport//96094.html)
 
-[soccer player (41) colapsó en el campo y murió]
-(https://www-francebleu-fr.translate.goog/infos/faits-divers-justice/un-joueur-de-foot-decede-sur-le-terrain-a-avignon-1634490552?_x_tr_sl=auto cosecha_tl=en_x_tr_hl=en-US_
+[soccer player (41) colapsó en el campo y murió](https://www.francebleu.fr/infos/faits-divers-justice/un-joueur-de-foot-decede-sur-le-terrain-a-avignon-1634490552?_x_tr_sl=auto+cosecha_tl%3Den_x_tr_hl%3Den-US_)
 
 [17/10/21] Adans João Santos Alencar (38), sufrió un paro cardíaco repentino](https://www.world-today-news.com/former-brusque-player-dies-after-suffering-a-heart-attack-during-game/)
 
