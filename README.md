@@ -25,7 +25,7 @@ Sun 23 Jan 2022 01:49:08 PM EST
 
 <!-- markdown-toc end -->
 
-## Los miembros valientes del Parlamento de la UE hablan
+### Los miembros valientes del Parlamento de la UE hablan
 
 [Hay tanta censura y amenazas, son personas útiles y valientes](https://www.infowars.com/posts/watch-eu-parliament-members-call-for-freedom-end-of-covid-lockdowns-censorship-discrimination/)
 
@@ -35,7 +35,7 @@ Sun 23 Jan 2022 01:49:08 PM EST
 - "La libertad y la libertad son derechos fundamentales para las personas que los gobiernos tienen que respetar". \
 comentario: Es tan simple como esto. Es el plan mundial de despoblación en acción.
 
-## Más importante Citas - te dijeron
+### Más importante Citas - te dijeron
 
 *comentario:* Cuando te dijeron que pusieras máscaras. Cuando te dijeron que había un virus mortalmente invisible. Cuando ellos les dijo que se inyectaran con algo de lo que saben * absolutamente nada*. Lo hiciste. Sin embargo,
 sin embargo ( ... ) usted es ; cuando comenzaron a utilizar su ( ... ) para potencialmente dañar y matar niños,
@@ -55,7 +55,7 @@ pero si hace a los niños..., "
 [ Journo de El Mayor Diario de herencia en USA dice que será recordado como "Crímenes Morales Catástricos" " El Covid " ]( https://www.infowars.com/posts/im-done-ex-nyt-journo-blasts-govt-covid-tyranny-says-will-be-remembered-as-catastrophic-moral-crime )\
 "Tengo muchos amigos, muchos periodistas en los medios de comunicación, que tienen miedo de hablar porque perderán su trabajo o peor".
 
-## El Plan
+### El Plan
 [World Depopulation ]( https://thinkaboutit.news/georgia-guidestones-commissioned-by-mystery-man) Los líderes en casi todos los países están respondiendo a un plan mundial.
 Increíblemente, países, empresas mediáticas, industria médica,
 universidades, políticos y empresas están bajo amenaza y presión para acordar
@@ -81,11 +81,11 @@ reducir la polución así que sólo 1 de cada 20 personas vivas hoy sobrevivirá
 [Grupos considerables de vacunas contra el Pfizer implicados en muertes](https://redice.tv/news/only-certain-covid-vaccine-lots-Caused-all-the-deaths- this-is-impossible-criminal-intent)\
 *comentario*: Lo que esto significa es que Pfizer mezcla específicamente un montón de vacunas para que las muertes se propagaran. Así que tu hermano tiene una inyección letal pero tienes agua salada. ¿Confundir? Ese es el punto.
 
-## Forced Vaccination video
+### Forced Vaccination video
 [lo que quieren](https://www.bitchute.com/video/G0Rn6N6hXmsD/)\
 *Comentario*: Aterrador, pero forzado o no, las personas y los niños están muriendo de las vacunas.
 
-## Cómo los hospitales están apoyando al Covid Hoax (y los pacientes que matan)
+### Cómo los hospitales están apoyando al Covid Hoax (y los pacientes que matan)
 
 [ Referencia Uno ](https://www.bitchute.com/video/hTO6nTPjaiJ0/)
 
@@ -94,7 +94,7 @@ reducir la polución así que sólo 1 de cada 20 personas vivas hoy sobrevivirá
 [Enfermera de denunciantes: Protocolo del CDC "Está matando a pacientes copos"](https://rairfoundation.com/whistleblower-nurse-cdc-protocol-is-killing-covid-patients-video/)\
 *comentario*: Resulta que los hospitales y sus trabajadores son tan tontos y codiciosos como tú.
 
-## Averigüe sobre el impulsor de la vacuna número 1 -Anthony Fauci-
+### Averigüe sobre el impulsor de la vacuna número 1 -Anthony Fauci-
 [El sobrino del presidente moderno más grande de América -John F. Kennedy- escribió un libro
 exposing him ](https://www.bitchute.com/video/aaaSaAho6uVPA)
 * Anthony Fauci *
@@ -104,13 +104,13 @@ continuó el experimento alegando que las drogas no eran la causa ".
 - financiado, ocultado y mintió sobre su conexión para crear el virus Covid-19
 - se ha beneficiado de la producción y el uso de las vacunas
 
-## Averigüe sobre el impulsor de 2 vacunas -Bill Gates-
+### Averigüe sobre el impulsor de 2 vacunas -Bill Gates-
 
 [Bill Gates quiere matar a mil millones de personas](https://www.youtube.com/watch?v=oWxsEAmh85Q)
 
 [Bill Gates linked to the largest and most known pedophile in USA](https://nypost.com/2021/09/22/bill-gates-squirms-when-asked-about-jeffrey-epstein-ties/)
 
-## Preguntas y declaraciones personales
+### Preguntas y declaraciones personales
 
 - No he usado una máscara en dos años ni he sido vacunado. *no gastar ninguna cantidad*
 de tiempo con individuos vacunados o enmascarados. Mis interacciones sociales incluyen todas
@@ -128,10 +128,10 @@ Si un niño es lesionado o discapacitado por la aplicación de una vacuna que va
 trabajadores y empresas para cerrar durante largos períodos - al mismo tiempo que requieren que
 ¿Los bancos siguen siendo pagados?
 
-## ¿Cómo y por qué los hospitales te están matando y enviando un cuerpo de vuelta diciendo la muerte de Covid en el certificado
+### ¿Cómo y por qué los hospitales te están matando y enviando un cuerpo de vuelta diciendo la muerte de Covid en el certificado
 [Se paga a los hospitalarios para que lo maten * subtítulos españoles* ](https://www.bitchute.com/video/Fh8ATZpGzNuZ/)
 
-## Turn Fuera de su televisión, radio y periódico - que están mintiendo a usted -
+### Turn Fuera de su televisión, radio y periódico - que están mintiendo a usted -
 
 [China utilizando personalidades de noticias Holográficas](https://hw.infowars.com/posts/china-reveals-ai-news-anchor-almost-indistinguishable-from-real-human/)
 
@@ -140,7 +140,7 @@ trabajadores y empresas para cerrar durante largos períodos - al mismo tiempo q
 [Más liras que repiten la *exactúan las mismas líneas* en las noticias](https://www.huffpost.com/entry/local-news-phrase-conan_n_4460787)\
 *comentario*: "¿Quién está escribiendo estas líneas y cómo es que estos canales de noticias independientes están diciendo la *exactúa misma cosa*?"
 
-## Todo ha sido una gran mentira
+### Todo ha sido una gran mentira
 
 [El presidente de la Tanzania * testa cabra y papaya* para coronavirus y el resultado es positivo!](https://globalnews.ca/news/6910821/coronavirus-papapaya-goat-tanzania/)
 
@@ -156,7 +156,7 @@ trabajadores y empresas para cerrar durante largos períodos - al mismo tiempo q
 
 [Vaccine Safety Research Foundation CEO - "150-300 thousand deaths in the U.S have been caused by the injections."](https://nationalfile.com/experts-accuse-govt-manipulating-vaccine-data-claim-300000-deaths-Caused-injections/)
 
-## Muerto o herido después de la vacuna
+### Muerto o herido después de la vacuna
 
 [Recibida por vacuna el mismo día, actualizó su foto de perfil](https://www.bitchute.com/video/hRctuMG4gYyG/)
 
@@ -174,7 +174,7 @@ problemas después de ser vacunados."
 
 [ Inventor de la tecnología principal utilizada en las vacunas dice " Tomé la vacuna dos veces y casi morí " ](https://thecovidworld.com/robert-malone-the-story-of-my-vaccine-injury-i-almost-died/?fbclid=IwAR35tSolOhSTi5dipuCsqRNQWLrLcrLcrLcrLcr3)
 
-## Miscellaneous news
+### Miscellaneous news
 
 [El médico exige la investigación y la parada inmediata para “Vaccines”](https://www.infowars.com/posts/doctor-demands-investigation-and-immediate-stop-to-vaccines/)
 
@@ -196,11 +196,11 @@ vacunas y las obliga a otros. Inteligente.
 [Top Vaccine pusher in USA (Fauci) connected to experiments involving torture and death of puppies](https://nypost.com/2021/10/27/fauci-slammed-by-beagle-organization-over-alleged-experiments/)\
 *comentario*: No es difícil de creer, porque está recomendando a todos (incluidos los niños) que tomen múltiples vacunas y posiblemente sufran enfermedades y muertes horrorosas.
 
-## Esta es una grande
+### Esta es una grande
 
 [Estudios científicos que muestran mejor la inmunidad natural que las vacunas peligrosas o potencialmente mortales](https://brownstone.org/articles/79-research-studies-affirm-naturally-acquired-inmunity-to-covid-19-documented-and-quoted/)
 
-## Children
+### Children
 
 [El niño de 6 años muere después de la primera dosis de la vacuna COVID-19](https://www.bitchute.com/video/podNLqyFUZZ/)\
 *Más información en vídeo**
@@ -237,7 +237,7 @@ al hospital para *cualquier causa* se enumerará oficialmente como un caso Covid
 
 [Baby paralized for life and other vaccine injuries](https://www.youtube.com/watch?v=2nuXE2FS_NU)
 
-## Base de datos VAERS y efectos secundarios oficiales posibles de las vacunas
+### Base de datos VAERS y efectos secundarios oficiales posibles de las vacunas
 
 [La base de datos de Vaers, permite a los médicos y a otros informar sobre las muertes o lesiones de salud de las vacunas.](https://www.cdc.gov/vaccinesafety/ensuringsafety/monitoring/vaers/index.html) \
 *comentario*: Las autoridades abogan por *multiplying the numbers below by 10x-100x times* to be more to be accurate.\
@@ -277,7 +277,7 @@ Informe estadístico - Fecha de publicación: 04 de agosto de 2021
 
 [Más vacunado, más enfermo](https://www.globalresearch.ca/high-recorded-mortality-in-countries-categorized-as-covid-19-vaccine-champions-increased-hospitalization/5757173 )
 
-## Mas de 300 Atletas muriendo y enfermando de las vacunas (Noticias hasta Noviembre, 2020)
+### Mas de 300 Atletas muriendo y enfermando de las vacunas (Noticias hasta Noviembre, 2020)
 
 [Triple jabbed Swiss marathon record holder and Olympic at diagnosed with myocarditis](https://freewestmedia.com/2022/01/11/tripple-jabbed-swiss-marathon-record-holder-and-olympic-athlete-diagnosed-with-myocarditis/)
 
