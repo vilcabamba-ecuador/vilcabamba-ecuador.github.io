@@ -176,6 +176,8 @@ problemas después de ser vacunados."
 
 ## Miscellaneous news
 
+[El médico exige la investigación y la parada inmediata para “Vaccines”](https://www.infowars.com/posts/doctor-demands-investigation-and-immediate-stop-to-vaccines/)
+
 [Los compuestos del cannabis podrían prevenir a Covid: estudio](https://www.rt.com/news/545824-cannabis-prevent-treat-covid) \
 *Comentario*: "Lo siento, incluí esto, pero el despertar te llevará muchos lugares. ¿Lo sabías antes de la farmacia?
 companinies -como Pfizer- tomó el control de la industria médica, ese 40% de las empresas de mamá y pop que venden remedios
