@@ -40,12 +40,12 @@ les dijo que se inyectaran con algo de lo que saben * absolutamente nada*. Lo hi
 sin embargo ( ... ) usted es ; cuando comenzaron a utilizar su ( ... ) para potencialmente dañar y matar niños,
 es cuando te pongo esto en la cara, como tu máscara. Por lo tanto, ahora no puede alegar ignorancia".
 
-[El director de salud mundial de la OMS dice que las vacunas no deben utilizarse para eliminar a los niños*](https://twitter.com/poore56/status/1473426380670980097)
-" *Es incorrecto usar estas vacunas para matar a niños*
+[El director de salud mundial de la OMS dice que las vacunas no deben utilizarse para eliminar a los niños ](https://twitter.com/poore56/status/1473426380670980097)
+" **Es incorrecto usar estas vacunas para matar a niños** "\
 comentario: "Si es incorrecto matar niños con la vacuna, ¿está bien matar adultos con la vacuna?"
 *Mi respuesta* "Hay un montón de estúpidos agujeros corriendo como adultos - les animo a tomar sus vacunas."
 
-[El senador de EE.UU. dijo: " * Millones han muerto de esta vacuna*"(https://www.mediaite.com/tv/dick-durbin-torches-anti-vaxx-quacks-tucker-carlson-and-laura-ingraham-in-senate-floor-i-hope-fox-will-come-to-itsenses) \
+[El senador de EE.UU. dijo: " **Millones han muerto de esta vacuna** " ](https://www.mediaite.com/tv/dick-durbin-torches-anti-vaxx-quacks-tucker-carlson-and-laura-ingraham-in-senate-floor-i-hope-fox-will-come-to-itsenses) \
 comentario: "A la hora 1:20 en video"
 
 [ Criminales Panic : Head UN Scientist advierte contra los niños recibiendo COVID Vax Booster](https://www.bitchute.com/video/JwrKphhMfkkh )
