@@ -31,7 +31,8 @@ Sun 23 Jan 2022 01:49:08 PM EST
 ## Los miembros valientes del Parlamento de la UE hablan
 
 [Hay tanta censura y amenazas, son personas útiles y valientes](https://www.infowars.com/posts/watch-eu-parliament-members-call-for-freedom-end-of-covid-lockdowns-censorship-discrimination/)
-- “Es hora de que los científicos y los médicos hablen, es hora de un debate abierto y buenas soluciones, no de censura y propaganda. ”
+
+- “Es hora de que los científicos y los médicos hablen, es hora de un debate abierto y buenas soluciones, no de censura y propaganda.”
 - "¿Por qué tanta gente está hospitalizada y muriendo aquí en Italia a pesar de que el 90% de los italianos están siendo vacunados?"
 - "Lo que vemos ahora es que la UE está pasando de la democracia a la tiranía en relación con las vacunas y Covid-19"
 - "La libertad y la libertad son derechos fundamentales para las personas que los gobiernos tienen que respetar". \
