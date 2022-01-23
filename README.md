@@ -6,16 +6,13 @@ Sun 23 Jan 2022 01:49:08 PM EST
 **Table of Contents**
 
 - [Los miembros valientes del Parlamento de la UE hablan](#los-miembros-valientes-del-parlamento-de-la-ue-hablan)
-- [Most Important Quotes - they told you](#most-important-quotes---they-told-you)
+- [Más importante Citas - te dijeron](#más-importante-citas---te-dijeron)
 - [El Plan](#el-plan)
 - [Forced Vaccination video](#forced-vaccination-video)
 - [Cómo los hospitales están apoyando al Covid Hoax (y los pacientes que matan)](#cómo-los-hospitales-están-apoyando-al-covid-hoax-y-los-pacientes-que-matan)
 - [Averigüe sobre el impulsor de la vacuna número 1 -Anthony Fauci-](#averigüe-sobre-el-impulsor-de-la-vacuna-número-1--anthony-fauci-)
 - [Averigüe sobre el impulsor de 2 vacunas -Bill Gates-](#averigüe-sobre-el-impulsor-de-2-vacunas--bill-gates-)
 - [Preguntas y declaraciones personales](#preguntas-y-declaraciones-personales)
-    - [-](#-)
-    - [Dos.](#dos)
-    - [Tres.](#tres)
 - [¿Cómo y por qué los hospitales te están matando y enviando un cuerpo de vuelta diciendo la muerte de Covid en el certificado](#cómo-y-por-qué-los-hospitales-te-están-matando-y-enviando-un-cuerpo-de-vuelta-diciendo-la-muerte-de-covid-en-el-certificado)
 - [Turn Fuera de su televisión, radio y periódico - que están mintiendo a usted -](#turn-fuera-de-su-televisión-radio-y-periódico---que-están-mintiendo-a-usted--)
 - [Todo ha sido una gran mentira](#todo-ha-sido-una-gran-mentira)
@@ -38,7 +35,7 @@ Sun 23 Jan 2022 01:49:08 PM EST
 - "La libertad y la libertad son derechos fundamentales para las personas que los gobiernos tienen que respetar". \
 comentario: Es tan simple como esto. Es el plan mundial de despoblación en acción.
 
-## Most Important Quotes - they told you
+## Más importante Citas - te dijeron
 
 comentario: Cuando te dijeron que pusieras máscaras. Cuando te dijeron que había un virus mortalmente invisible. Cuando ellos
 les dijo que se inyectaran con algo de lo que saben * absolutamente nada*. Lo hiciste. Sin embargo,
