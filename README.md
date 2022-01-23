@@ -54,7 +54,7 @@ comentario: "A la hora 1:20 en video"
 "Tengo muchos amigos, muchos periodistas en los medios de comunicación, que tienen miedo de hablar porque perderán su trabajo o peor".
 
 ## El Plan
-[World Depopulation ]( https://thinkaboutit.news/georgia-guidestones-commissioned-by-mystery-man Los líderes en casi todos los países están respondiendo a un plan mundial.
+[World Depopulation ]( https://thinkaboutit.news/georgia-guidestones-commissioned-by-mystery-man) Los líderes en casi todos los países están respondiendo a un plan mundial.
 Increíblemente, países, empresas mediáticas, industria médica,
 universidades, políticos y empresas están bajo amenaza y presión para acordar
 apoyar este plan. La expresión más famosa de este plan son talladas
@@ -465,7 +465,7 @@ Video https://www.youtube.com/watch?v=cvPQO44NzN4
 
 [ 14/08/21, Dimitri McKee (17) Lee High School El futbolista falleció y murió después de la práctica ](https://www.wbrc.com/2021/08/14/lee-high-school-football-player-dimitri-mckee-dies/)
 
-[15/08/21, Jeremy Chardy (34) tenista profesional, se retira después de “Violento, casi paralizante dolor” después de la vacuna Covid-19)(https://www.rt.com/sport/535829-jeremy-chardy-covid-vaccine-reaction/)
+[15/08/21 Jeremy Chardy (34) tenista profesional, se retira después de “Violento, casi paralizante dolor” después de la vacuna Covid-19)(https://www.rt.com/sport/535829-jeremy-chardy-covid-vaccine-reaction/)
 
 [15/08/21 Marco Tampwo (19,) Atletico Fioghi footballer from Rome, died of a cardiac arrest](https://www.italy24news.com//160390.html)
 
@@ -604,9 +604,9 @@ Otros tres jóvenes ciclistas belgas (Kempen) sufren problemas cardíacos tras l
 
 [10/10/21, Pompeo Tretola (18,) futbolista de repente se desmaya en el campo, es revivido por su compañero de equipo](https://casertace.net/il-video-giocatore-18enne-colto-da-malore-improvviso-in-campo-cosi-il-suo-avversario-lo-ha-salvato/)
 
-[10/10/21, el jugador de Saint-James sufre un ataque al corazón después de calentarse antes del juego] (https://actu.fr/normandie/avranches_50025/un-joueur-de-foot-fait-un-arret-cardiaque-avant-le-match-saint-james-contre-avranches_45566459.html?_xhl_tr=auto)
+[10/10/21 el jugador de Saint-James sufre un ataque al corazón después de calentarse antes del juego](https://actu.fr/normandie/avranches_50025/un-joueur-de-foot-fait-un-arret-cardiaque-avant-le-match-saint-james-contre-avranches_45566459.html?_xhl_tr=auto)
 
-[Daniel Aakervik (17) uno de los mayores talentos de esquí de fondo de Noruega suspendió su temporada después de una severa reacción a la vacunación contra el COVID] (https://www.langrenn.com/)
+[Daniel Aakervik (17) uno de los mayores talentos de esquí de fondo de Noruega suspendió su temporada después de una severa reacción a la vacunación contra el COVID](https://www.langrenn.com/)
 
 [12/10/21 Ewan Fraser (30,) jugador de hockey de campo de Glasgow colapsó con paro cardíaco](https://www.thescottishsun.co.uk/news/7832060/glasgow-hockey-died-collapse-life/)
 
