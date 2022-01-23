@@ -112,7 +112,6 @@ continuó el experimento alegando que las drogas no eran la causa ".
 
 ## Preguntas y declaraciones personales
 
-Uno
 - No he usado una máscara en dos años ni he sido vacunado. *no gastar ninguna cantidad*
 de tiempo con individuos vacunados o enmascarados. Mis interacciones sociales incluyen todas
 normal abrazar, besar y distancia como antes hace 2 años. Mi estimación honesta es que mi
@@ -120,17 +119,11 @@ grupo de contactos incluye 50 locales y breves períodos alrededor de 100 visita
 a Vilcabamba. ¿Cómo es que ninguna de estas personas -y yo- ha sufrido nada
 más que los resfriados normales y la gripe? Evitamos los hospitales -quizás eso es parte de nuestro continuo
 salud.
-
-Dos.
 - [Se calcula que la tasa de mortalidad de la enfermedad es de 0.0016% para niños menores de 10 años. ](https://uk.news.yahoo.com/coronavirus-puzzle-why-risk-death-140222308.html) \
 *comentario*: ¿Por qué el gobierno intenta vacunar a los niños cuando tienen menos de 1 en 50.000 posibilidades de morir?
 de Covid-19 ?
-
-Tres.
 - ¿Qué crees que es una pena apropiada para alguien que lesiona o mata a un niño?
 Si un niño es lesionado o discapacitado por la aplicación de una vacuna que va a responsabilizarse?
-
-Cuatro.
 - Si el gobierno estaba realmente preocupado con su salud, ¿por qué han forzado
 trabajadores y empresas para cerrar durante largos períodos - al mismo tiempo que requieren que
 ¿Los bancos siguen siendo pagados?
