@@ -42,7 +42,7 @@ comentario: Es tan simple como esto. Es el plan mundial de despoblación en acci
 
 ### Más importante Citas - te dijeron
 
-*comentario:* Cuando te dijeron que pusieras máscaras. Cuando te dijeron que había un virus mortalmente invisible. Cuando ellos les dijo que se inyectaran con algo de lo que saben * absolutamente nada*. Lo hiciste. Sin embargo,
+*comentario:* Cuando te dijeron que pusieras máscaras. Cuando te dijeron que había un virus mortalmente invisible. Cuando ellos les dijo que se inyectaran con algo de lo que saben *absolutamente nada*. Lo hiciste. Sin embargo,
 sin embargo ( ... ) usted es ; cuando comenzaron a utilizar su ( ... ) para potencialmente dañar y matar niños,
 es cuando te pongo esto en la cara, como tu máscara. Por lo tanto, ahora no puede alegar ignorancia".
 
@@ -85,6 +85,11 @@ reducir la polución así que sólo 1 de cada 20 personas vivas hoy sobrevivirá
 
 [Grupos considerables de vacunas contra el Pfizer implicados en muertes](https://redice.tv/news/only-certain-covid-vaccine-lots-Caused-all-the-deaths- this-is-impossible-criminal-intent)\
 *comentario*: Lo que esto significa es que Pfizer mezcla específicamente un montón de vacunas para que las muertes se propagaran. Así que tu hermano tiene una inyección letal pero tienes agua salada. ¿Confundir? Ese es el punto.
+
+#### humor para arriba
+
+[ " Las élites se quejan de que la persona común parece estar confiando en ellos menos, pero también traen las buenas noticias -para ellos- que "nosotros (las Elites) estamos teniendo un mejor tiempo confiando entre sí " ]( https://www.infowars.com/posts/elite-panicking-that-the-public-doesnt-trust-them/ ) 
+*comment*:  "Nuevo Orden Mundial"  contra  "Nosotros"
 
 ### Video de vacunación forzada 
 
