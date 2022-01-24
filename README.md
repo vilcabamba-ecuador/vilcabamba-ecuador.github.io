@@ -5,25 +5,30 @@ Sun 23 Jan 2022 01:49:08 PM EST
 <!-- markdown-toc start - Don't edit this section. Run M-x markdown-toc-refresh-toc -->
 **Table of Contents**
 
+- [Aviso de advertencia](#aviso-de-advertencia)
 - [Los miembros valientes del Parlamento de la UE hablan](#los-miembros-valientes-del-parlamento-de-la-ue-hablan)
 - [Más importante Citas - te dijeron](#más-importante-citas---te-dijeron)
 - [El Plan](#el-plan)
-- [Forced Vaccination video](#forced-vaccination-video)
+- [Video de vacunación forzada](#video-de-vacunación-forzada)
 - [Cómo los hospitales están apoyando al Covid Hoax (y los pacientes que matan)](#cómo-los-hospitales-están-apoyando-al-covid-hoax-y-los-pacientes-que-matan)
 - [Averigüe sobre el impulsor de la vacuna número 1 -Anthony Fauci-](#averigüe-sobre-el-impulsor-de-la-vacuna-número-1--anthony-fauci-)
 - [Averigüe sobre el impulsor de 2 vacunas -Bill Gates-](#averigüe-sobre-el-impulsor-de-2-vacunas--bill-gates-)
 - [Preguntas y declaraciones personales](#preguntas-y-declaraciones-personales)
-- [¿Cómo y por qué los hospitales te están matando y enviando un cuerpo de vuelta diciendo la muerte de Covid en el certificado](#cómo-y-por-qué-los-hospitales-te-están-matando-y-enviando-un-cuerpo-de-vuelta-diciendo-la-muerte-de-covid-en-el-certificado)
-- [Turn Fuera de su televisión, radio y periódico - que están mintiendo a usted -](#turn-fuera-de-su-televisión-radio-y-periódico---que-están-mintiendo-a-usted--)
+- [¿Cómo y por qué los hospitales te están matando y enviando un cuerpo de vuelta diciendo la muerte de Covid en el certificado?](#cómo-y-por-qué-los-hospitales-te-están-matando-y-enviando-un-cuerpo-de-vuelta-diciendo-la-muerte-de-covid-en-el-certificado)
+- [Apagado su televisión, radio y periódico - que están mintiendo a usted -](#apagado-su-televisión-radio-y-periódico---que-están-mintiendo-a-usted--)
 - [Todo ha sido una gran mentira](#todo-ha-sido-una-gran-mentira)
 - [Muerto o herido después de la vacuna](#muerto-o-herido-después-de-la-vacuna)
-- [Miscellaneous news](#miscellaneous-news)
+- [Noticias diversas](#noticias-diversas)
 - [Esta es una grande](#esta-es-una-grande)
-- [Children](#children)
+- [Niños](#niños)
 - [Base de datos VAERS y efectos secundarios oficiales posibles de las vacunas](#base-de-datos-vaers-y-efectos-secundarios-oficiales-posibles-de-las-vacunas)
 - [Mas de 300 Atletas muriendo y enfermando de las vacunas (Noticias hasta Noviembre, 2020)](#mas-de-300-atletas-muriendo-y-enfermando-de-las-vacunas-noticias-hasta-noviembre-2020)
 
 <!-- markdown-toc end -->
+
+### Aviso de advertencia
+
+Porque he estado *8 meses* profundamente en esta información y porque he tenido que ver y experimentar muchos de mis vecinos se conforman con esta gran mentira, algunos de mis comentarios pueden parecer insultantes. Bueno, puedes ignorarlos, Consciente de lo difícil que es para mí ver todo esto desde el punto de vista expresado en este documento.
 
 ### Los miembros valientes del Parlamento de la UE hablan
 
@@ -88,12 +93,14 @@ reducir la polución así que sólo 1 de cada 20 personas vivas hoy sobrevivirá
 
 ### Cómo los hospitales están apoyando al Covid Hoax (y los pacientes que matan)
 
+[El Dr. Lawrie descubrió que los conflictos de interés estaban influenciando la supresión del tratamiento temprano y la reducción de las reacciones adversas de las vacunas Covid-19 ](https://www.infowars.com/posts/doctor-demands-investigation-and-immediate-stop-to-vaccines/)
+
 [ Referencia Uno ](https://www.bitchute.com/video/hTO6nTPjaiJ0/)
 
 [Hospitals paid to list deaths as COVID-virus](https://www.organiclifestylemagazine.com/cdc-admits-finacial-hospital-incentives-drove-up-covid-19-death-rates)
 
 [Enfermera de denunciantes: Protocolo del CDC "Está matando a pacientes copos"](https://rairfoundation.com/whistleblower-nurse-cdc-protocol-is-killing-covid-patients-video/)\
-*comentario*: Resulta que los hospitales y sus trabajadores son tan tontos y codiciosos como tú.
+*comentario*: Resulta que los hospitales y sus trabajadores son tan tontos y codiciosos como ustedes.
 
 ### Averigüe sobre el impulsor de la vacuna número 1 -Anthony Fauci-
 [El sobrino del presidente moderno más grande de América -John F. Kennedy- escribió un libro
