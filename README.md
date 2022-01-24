@@ -103,6 +103,7 @@ reducir la polución así que sólo 1 de cada 20 personas vivas hoy sobrevivirá
 *comentario*: Resulta que los hospitales y sus trabajadores son tan tontos y codiciosos como ustedes.
 
 ### Averigüe sobre el impulsor de la vacuna número 1 -Anthony Fauci-
+
 [El sobrino del presidente moderno más grande de América -John F. Kennedy- escribió un libro
 exposing him ](https://www.bitchute.com/video/aaaSaAho6uVPA)
 * Anthony Fauci *
@@ -206,7 +207,7 @@ vacunas y las obliga a otros. Inteligente.
 [Top Vaccine pusher in USA (Fauci) connected to experiments involving torture and death of puppies](https://nypost.com/2021/10/27/fauci-slammed-by-beagle-organization-over-alleged-experiments/)\
 *comentario*: No es difícil de creer, porque está recomendando a todos (incluidos los niños) que tomen múltiples vacunas y posiblemente sufran enfermedades y muertes horrorosas.
 
-### Esta es una grande
+### Esta es una grande 
 
 [Estudios científicos que muestran mejor la inmunidad natural que las vacunas peligrosas o potencialmente mortales](https://brownstone.org/articles/79-research-studies-affirm-naturally-acquired-inmunity-to-covid-19-documented-and-quoted/)
 
@@ -335,14 +336,14 @@ Informe estadístico - Fecha de publicación: 04 de agosto de 2021
 
 [29/03/21 Devaraj Anchan (33) colapsó y murió en el camino al hospital](https://www.thehindu.com/news/cities/Mangalore/volleyball-player-collapses-during-game-dies/article34185430.ece)
 
-[30/03/21, Charles Bulu Ghanaian referee collapses during AFCON Match](https://www.442gh.com/sad-news-ghana-referee-charles-bulu-collapse-during-africa-cup-of-nations-qualifier/)
+[30/03/21, Charles Bulu Ghanaian referee colapsó during AFCON Match](https://www.442gh.com/sad-news-ghana-referee-charles-bulu-collapse-during-africa-cup-of-nations-qualifier/)
 Video https://www.youtube.com/watch?v=cvPQO44NzN4
 
-[30/03/21, Alex Stalock (34,) NHL Oilers goalie out for the season or more due to heart condition.](https://theathletic.com/2420526/2021/03/01/exclusive-alex-stalock-shares-details-of-heart-condition-excitement-about-joining-oilers/?source=emp_shared_article)
+[30/03/21, Alex Stalock (34,) NHL Oilers  endie fuera para la temporada o más debido a la condición del corazón ](https://theathletic.com/2420526/2021/03/01/exclusive-alex-stalock-shares-details-of-heart-condition-excitement-about-joining-oilers/?source=emp_shared_article)
 
-[31/03/21 Brett Smith, an NCAA college basketball referee, collapsed during a game.](https://www.cbsports.com/college-basketball/news/ncaa-tournament-official-bert-smith-collapses-during-elite-eight-game-between-gonzaga-and-usc/)
+[31/03/21 Brett Smith, an NCAA college basketball referee colapsó durantè juego ](https://www.cbsports.com/college-basketball/news/ncaa-tournament-official-bert-smith-collapses-during-elite-eight-game-between-gonzaga-and-usc/)
 
-[31/03/21 Filip Ingebrigtsen (28) Norwegian runner had a duro 2021 after a reaction to the corona vaccine.](https://norwaytoday.info/sport/filip-ingebrigtsen-is-back-in-training-after-experiencing-long-corona-vaccination-side-effects/)
+[31/03/21 Filip Ingebrigtsen (28) Norwegian el corredor tuvo un duro 2021 después de una reacción a la vacuna corona ](https://norwaytoday.info/sport/filip-ingebrigtsen-is-back-in-training-after-experiencing-long-corona-vaccination-side-effects/)
 
 [06/04/2021, Moira Claire Arney (15) McAllen High School female Soccer player colapsó y murió durante la práctica](https://myrgv.com/local-news/2021/08/18/daughter-of-mchi-coach-dies-at-soccer-practice/)
 
