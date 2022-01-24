@@ -129,14 +129,16 @@ Si un niño es lesionado o discapacitado por la aplicación de una vacuna que va
 trabajadores y empresas para cerrar durante largos períodos - al mismo tiempo que requieren que
 ¿Los bancos siguen siendo pagados?
 
-### ¿Cómo y por qué los hospitales te están matando y enviando un cuerpo de vuelta diciendo la muerte de Covid en el certificado
-[Se paga a los hospitalarios para que lo maten * subtítulos españoles* ](https://www.bitchute.com/video/Fh8ATZpGzNuZ/)
+### ¿Cómo y por qué los hospitales te están matando y enviando un cuerpo de vuelta diciendo la muerte de Covid en el certificado?
+[Se paga a los hospitalarios para que lo maten *subtítulos españoles* ](https://www.bitchute.com/video/Fh8ATZpGzNuZ/)
 
-### Turn Fuera de su televisión, radio y periódico - que están mintiendo a usted -
+### Apagado su televisión, radio y periódico - que están mintiendo a usted -
+
+[Noticias televisivas forzadas a eliminar "hospitales de reclamo llenos de pacientes no vacunados" (es en realidad lo contrario)](https://www.infowars.com/posts/broadcaster-issued-warning-after-falsely-claiming-90-per-cent-of-covid-patients-were-unvaccinated/)
 
 [China utilizando personalidades de noticias Holográficas](https://hw.infowars.com/posts/china-reveals-ai-news-anchor-almost-indistinguishable-from-real-human/)
 
-[Liers in the media - títeres repeating the same lines for the gullible](https://www.bitchute.com/video/YputqsltlH5K/)
+[Menajes en los medios - varios *repetir las mismas líneas* para el gollible](https://www.bitchute.com/video/YputqsltlH5K/)
 
 [Más liras que repiten la *exactúan las mismas líneas* en las noticias](https://www.huffpost.com/entry/local-news-phrase-conan_n_4460787)\
 *comentario*: "¿Quién está escribiendo estas líneas y cómo es que estos canales de noticias independientes están diciendo la *exactúa misma cosa*?"
