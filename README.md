@@ -1,4 +1,3 @@
- 
 Sun 23 Jan 2022 01:49:08 PM EST
 **dirección web arriba "para acceder" los hipervínculos en esta página**
 
@@ -6,9 +5,12 @@ Sun 23 Jan 2022 01:49:08 PM EST
 **Table of Contents**
 
 - [Aviso de advertencia](#aviso-de-advertencia)
+- [Show de payasos!](#show-de-payasos)
+- [Payasos mueren niños!](#payasos-mueren-niños)
 - [Los miembros valientes del Parlamento de la UE hablan](#los-miembros-valientes-del-parlamento-de-la-ue-hablan)
 - [Más importante Citas - te dijeron](#más-importante-citas---te-dijeron)
 - [El Plan](#el-plan)
+    - [humor para arriba](#humor-para-arriba)
 - [Video de vacunación forzada](#video-de-vacunación-forzada)
 - [Cómo los hospitales están apoyando al Covid Hoax (y los pacientes que matan)](#cómo-los-hospitales-están-apoyando-al-covid-hoax-y-los-pacientes-que-matan)
 - [Averigüe sobre el impulsor de la vacuna número 1 -Anthony Fauci-](#averigüe-sobre-el-impulsor-de-la-vacuna-número-1--anthony-fauci-)
@@ -29,6 +31,15 @@ Sun 23 Jan 2022 01:49:08 PM EST
 ### Aviso de advertencia
 
 Porque he estado *8 meses* profundamente en esta información y porque he tenido que ver y experimentar muchos de mis vecinos se conforman con esta gran mentira, algunos de mis comentarios pueden parecer insultantes. Bueno, puedes ignorarlos, Consciente de lo difícil que es para mí ver todo esto desde el punto de vista expresado en este documento.
+
+### Show de payasos!
+[El espectáculo de payaso continúa - Ringleader dice a los payasos - "Hemos redefinido vacunado para significar que ha recibido la cantidad de vacunas que decidimos cuando queremos" Así que, si ha tomado dos vacunas ahora no está vacunado en algunas áreas](https://thenewamerican.com/boosters-forever-cdc-pivoting-on-language-vaccinated-becomes-up-to-date/) \
+comentario: ver cómo funciona - payasos -?
+
+### Payasos mueren niños!
+
+En Brasil, la semana pasada comenzaron las vacunas para niños de tan solo cinco años, a pesar de las objeciones del presidente brasileño Jair Bolsonaro, quien expresó su preocupación por vacunar al grupo menos en riesgo de morir de Covid.
+¿Vas a vacunar a tu hijo cuando la posibilidad de morir es casi cero? ¿Qué hay detrás de esto? ¿Cuáles son los intereses de los maníacos de la vacuna?” preguntó el presidente Bolsonaro a principios de este mes.
 
 ### Los miembros valientes del Parlamento de la UE hablan
 
@@ -88,10 +99,10 @@ reducir la polución así que sólo 1 de cada 20 personas vivas hoy sobrevivirá
 
 #### humor para arriba
 
-[ " Las élites se quejan de que la persona común parece estar confiando en ellos menos, pero también traen las buenas noticias -para ellos- que "nosotros (las Elites) estamos teniendo un mejor tiempo confiando entre sí " ]( https://www.infowars.com/posts/elite-panicking-that-the-public-doesnt-trust-them/ ) 
+[ " Las élites se quejan de que la persona común parece estar confiando en ellos menos, pero también traen las buenas noticias -para ellos- que "nosotros (las Elites) estamos teniendo un mejor tiempo confiando entre sí " ]( https://www.infowars.com/posts/elite-panicking-that-the-public-doesnt-trust-them/ )
 *comment*:  "Nuevo Orden Mundial"  contra  "Nosotros"
 
-### Video de vacunación forzada 
+### Video de vacunación forzada
 
 [lo que quieren](https://www.bitchute.com/video/G0Rn6N6hXmsD/)\
 *Comentario*: Aterrador, pero forzado o no, las personas y los niños están muriendo de las vacunas.
@@ -174,6 +185,9 @@ trabajadores y empresas para cerrar durante largos períodos - al mismo tiempo q
 
 ### Muerto o herido después de la vacuna
 
+(https://newspunch.com/fully-jabbed-olympic-gold-medallist-drops-dead-media-coverup/)
+[Fully jabbed Olympic gold medallist Szilveszter Csollany has dies]
+
 [Recibida por vacuna el mismo día, actualizó su foto de perfil](https://www.bitchute.com/video/hRctuMG4gYyG/)
 
 [13 yr old formerly healthy girl killed by pfizer spends final pain filled days in pañales](https://www.bitchute.com/video/pLKG8jyryN59/)
@@ -212,11 +226,13 @@ vacunas y las obliga a otros. Inteligente.
 [Top Vaccine pusher in USA (Fauci) connected to experiments involving torture and death of puppies](https://nypost.com/2021/10/27/fauci-slammed-by-beagle-organization-over-alleged-experiments/)\
 *comentario*: No es difícil de creer, porque está recomendando a todos (incluidos los niños) que tomen múltiples vacunas y posiblemente sufran enfermedades y muertes horrorosas.
 
-### Esta es una grande 
+### Esta es una grande
 
 [Estudios científicos que muestran mejor la inmunidad natural que las vacunas peligrosas o potencialmente mortales](https://brownstone.org/articles/79-research-studies-affirm-naturally-acquired-inmunity-to-covid-19-documented-and-quoted/)
 
 ### Niños
+
+[ De 10 años de edad-luisa-petenuci-suffers-cardiac-arrest-12-horas-después de recibir-vaccine ](https://thecovidworld.com/shock-as-10-year-old-luisa-petenuci-suffers-cardiac-arrest-12-hours-after-receiving-pfizer-covid-19-vaccine/)
 
 [El niño de 6 años muere después de la primera dosis de la vacuna COVID-19](https://www.bitchute.com/video/podNLqyFUZZ/)\
 *Más información en vídeo**
@@ -785,5 +801,3 @@ juego](https://www.independ.co.uk/sport/football/norway-footballer-emil-palsson-
 
 [07/12/21 Jake Lever (25,) jugador estrella de Melbourne (AFL) colapsó durante su primera sesión de entrenamiento ](https://wwos.nine.com.au/afl/jake-lever-collapses-faints-melbourne-demons-preseason-training/d37523a0-446a-4658-8ffc-6de53ab8d6b8)
 [05/12/21 Fabio Pedretti (24,) colapsó y murió mientras corría en el Uno de Monticelli](https://www.fanpage.it/milano/brescia-muore-improvvisamente-il-runner-24enne-fabio-pedretti-era-il-giorno-del-suo-compleanno/)
-
-
