@@ -133,6 +133,7 @@ reducir la polución así que sólo 1 de cada 20 personas vivas hoy sobrevivirá
 
 [El sobrino del presidente moderno más grande de América -John F. Kennedy- escribió un libro
 exposing him ](https://www.bitchute.com/video/aaaSaAho6uVPA)
+
 **Anthony Fauci**
 
 - cortar las cuerdas vocales de los cachorros y mantenerlos en jaulas para ser comidos por la arena huye
