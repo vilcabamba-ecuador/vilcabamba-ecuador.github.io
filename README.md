@@ -1,10 +1,18 @@
-Sun 23 Jan 2022 01:49:08 PM EST
+---
+author:vilcabamba
+title:https://vilcabamba-ecuador.github.io
+date:01/26/2022
+...
+
+
 **dirección web arriba "para acceder" los hipervínculos en esta página**
+
 
 <!-- markdown-toc start - Don't edit this section. Run M-x markdown-toc-refresh-toc -->
 **Table of Contents**
 
 - [Aviso de advertencia](#aviso-de-advertencia)
+- [¿Alguna vez has sentido que hablar con gente estúpida te hace parecer estúpido? Odio escribir estas cosas. ¿Con quién estoy hablando?](#alguna-vez-has-sentido-que-hablar-con-gente-estúpida-te-hace-parecer-estúpido-odio-escribir-estas-cosas-con-quién-estoy-hablando)
 - [Show de payasos!](#show-de-payasos)
 - [Payasos mueren niños!](#payasos-mueren-niños)
 - [Los miembros valientes del Parlamento de la UE hablan](#los-miembros-valientes-del-parlamento-de-la-ue-hablan)
@@ -31,6 +39,9 @@ Sun 23 Jan 2022 01:49:08 PM EST
 ### Aviso de advertencia
 
 Porque he estado *8 meses* profundamente en esta información y porque he tenido que ver y experimentar muchos de mis vecinos se conforman con esta gran mentira, algunos de mis comentarios pueden parecer insultantes. Bueno, puedes ignorarlos, Consciente de lo difícil que es para mí ver todo esto desde el punto de vista expresado en este documento.
+
+### ¿Alguna vez has sentido que hablar con gente estúpida te hace parecer estúpido? Odio escribir estas cosas. ¿Con quién estoy hablando?
+[Los médicos han estado administrando un tratamiento temprano simple a los enfermos de virus (150.000 casos) y tenemos una tasa de supervivencia del 99.99 por ciento -gratis- no hospitales y no vacunas](https://www.zerohedge.com/covid-19/doctors-organization-has-treated-over-150000-covid-19-patients-9999-percent-survival)
 
 ### Show de payasos!
 [El espectáculo de payaso continúa - Ringleader dice a los payasos - "Hemos redefinido vacunado para significar que ha recibido la cantidad de vacunas que decidimos cuando queremos" Así que, si ha tomado dos vacunas ahora no está vacunado en algunas áreas](https://thenewamerican.com/boosters-forever-cdc-pivoting-on-language-vaccinated-becomes-up-to-date/) \
@@ -122,7 +133,8 @@ reducir la polución así que sólo 1 de cada 20 personas vivas hoy sobrevivirá
 
 [El sobrino del presidente moderno más grande de América -John F. Kennedy- escribió un libro
 exposing him ](https://www.bitchute.com/video/aaaSaAho6uVPA)
-* Anthony Fauci *
+**Anthony Fauci**
+
 - cortar las cuerdas vocales de los cachorros y mantenerlos en jaulas para ser comidos por la arena huye
 - inyectó bebés con drogas mortales conocidas e incluso después de morir,
 continuó el experimento alegando que las drogas no eran la causa ".
