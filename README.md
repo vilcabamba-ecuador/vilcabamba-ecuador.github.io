@@ -1,16 +1,13 @@
----
-author:vilcabamba
-title:https://vilcabamba-ecuador.github.io
-date:01/26/2022
-...
+[vilcabamba-ecuador.github.io](vilcabamba-ecuador.github.io)
 
-
-**dirección web arriba "para acceder" los hipervínculos en esta página**
-
+ **Escriba dirección web arriba "para acceder" los hipervínculos en esta página**\
+01/26/2022
+**Mas, El sitio del web arriba contienes nuevas referencias y informacion various tiempos**
 
 <!-- markdown-toc start - Don't edit this section. Run M-x markdown-toc-refresh-toc -->
 **Table of Contents**
 
+- [Nueva mierda día a día](#nueva-mierda-día-a-día)
 - [Aviso de advertencia](#aviso-de-advertencia)
 - [¿Alguna vez has sentido que hablar con gente estúpida te hace parecer estúpido? Odio escribir estas cosas. ¿Con quién estoy hablando?](#alguna-vez-has-sentido-que-hablar-con-gente-estúpida-te-hace-parecer-estúpido-odio-escribir-estas-cosas-con-quién-estoy-hablando)
 - [Show de payasos!](#show-de-payasos)
@@ -18,7 +15,7 @@ date:01/26/2022
 - [Los miembros valientes del Parlamento de la UE hablan](#los-miembros-valientes-del-parlamento-de-la-ue-hablan)
 - [Más importante Citas - te dijeron](#más-importante-citas---te-dijeron)
 - [El Plan](#el-plan)
-    - [humor para arriba](#humor-para-arriba)
+	- [humor para arriba](#humor-para-arriba)
 - [Video de vacunación forzada](#video-de-vacunación-forzada)
 - [Cómo los hospitales están apoyando al Covid Hoax (y los pacientes que matan)](#cómo-los-hospitales-están-apoyando-al-covid-hoax-y-los-pacientes-que-matan)
 - [Averigüe sobre el impulsor de la vacuna número 1 -Anthony Fauci-](#averigüe-sobre-el-impulsor-de-la-vacuna-número-1--anthony-fauci-)
@@ -36,21 +33,36 @@ date:01/26/2022
 
 <!-- markdown-toc end -->
 
+### Nueva mierda día a día
+
+[el Departamento de Defensa fue atrapado encubriendo un gran número de eventos adversos de la vacuna contra la covid](https://www.bitchute.com/video/BE3ZsRDDDsQn/)
+
+[Ofreció $1,000.000,00 para que alguien del "CDC" o de la "FDA" hablara con él sobre los datos de la covid más vacunados = más enfermos](https://www.bitchute.com/video/d9NgR1gelmeV/)
+
+[Australian Head admite que las personas en los hospitales que figuran como pacientes con "Virus" en realidad están allí por otras razones. (oye, pero las noticias dicen que están ahí por el "Virus")](https://www.bitchute.com/video/JtyeJWGkakQ9/)
+*Comment*: 17:40 en vidèo
+
+[He estado haciendo esto por mucho tiempo, pero nunca deja de "sorprenderme"... La película "Desbloqueado" - 2017-describe exactamente lo que está sucediendo ahora. Siempre te lo dicen ...](https://www.bitchute.com/video/JtyeJWGkakQ9/)
+*Comment*: 35:00 en vidèo
+
+[Conoce al Padre de un Niño Dañado por la Vacuna Que lucha contra las Grandes Farmacéuticas y Gana](https://www.infowars.com/posts/meet-the-father-of-a-vaccine-damaged-child-who-is-fighting-big-pharma-and-winning/)
+
 ### Aviso de advertencia
 
 Porque he estado *8 meses* profundamente en esta información y porque he tenido que ver y experimentar muchos de mis vecinos se conforman con esta gran mentira, algunos de mis comentarios pueden parecer insultantes. Bueno, puedes ignorarlos, Consciente de lo difícil que es para mí ver todo esto desde el punto de vista expresado en este documento.
 
 ### ¿Alguna vez has sentido que hablar con gente estúpida te hace parecer estúpido? Odio escribir estas cosas. ¿Con quién estoy hablando?
+
 [Los médicos han estado administrando un tratamiento temprano simple a los enfermos de virus (150.000 casos) y tenemos una tasa de supervivencia del 99.99 por ciento -gratis- no hospitales y no vacunas](https://www.zerohedge.com/covid-19/doctors-organization-has-treated-over-150000-covid-19-patients-9999-percent-survival)
 
 ### Show de payasos!
 [El espectáculo de payaso continúa - Ringleader dice a los payasos - "Hemos redefinido vacunado para significar que ha recibido la cantidad de vacunas que decidimos cuando queremos" Así que, si ha tomado dos vacunas ahora no está vacunado en algunas áreas](https://thenewamerican.com/boosters-forever-cdc-pivoting-on-language-vaccinated-becomes-up-to-date/) \
-comentario: ver cómo funciona - payasos -?
+comentario: ver cómo funciona ?
 
 ### Payasos mueren niños!
 
 En Brasil, la semana pasada comenzaron las vacunas para niños de tan solo cinco años, a pesar de las objeciones del presidente brasileño Jair Bolsonaro, quien expresó su preocupación por vacunar al grupo menos en riesgo de morir de Covid.
-¿Vas a vacunar a tu hijo cuando la posibilidad de morir es casi cero? ¿Qué hay detrás de esto? ¿Cuáles son los intereses de los maníacos de la vacuna?” preguntó el presidente Bolsonaro a principios de este mes.
+¿Vas a vacunar a tu hijo cuando la posibilidad de morir con El Virus es casi cero? ¿Qué hay detrás de esto? ¿Cuáles son los intereses de los maníacos de la vacuna?” preguntó el presidente Bolsonaro a principios de este mes.
 
 ### Los miembros valientes del Parlamento de la UE hablan
 
@@ -132,10 +144,9 @@ reducir la polución así que sólo 1 de cada 20 personas vivas hoy sobrevivirá
 ### Averigüe sobre el impulsor de la vacuna número 1 -Anthony Fauci-
 
 [El sobrino del presidente moderno más grande de América -John F. Kennedy- escribió un libro
-exposing him ](https://www.bitchute.com/video/aaaSaAho6uVPA)
+exposing him ](https://www.bitchute.com/video/aaaSaAho6uVPA)\
 
-**Anthony Fauci**
-
+**EL**
 - cortar las cuerdas vocales de los cachorros y mantenerlos en jaulas para ser comidos por la arena huye
 - inyectó bebés con drogas mortales conocidas e incluso después de morir,
 continuó el experimento alegando que las drogas no eran la causa ".
@@ -146,20 +157,16 @@ continuó el experimento alegando que las drogas no eran la causa ".
 
 [Bill Gates quiere matar a mil millones de personas](https://www.youtube.com/watch?v=oWxsEAmh85Q)
 
-[Bill Gates linked to the largest and most known pedophile in USA](https://nypost.com/2021/09/22/bill-gates-squirms-when-asked-about-jeffrey-epstein-ties/)
+[Bill Gates vinculado al pedófilo más grande y conocido de Estados Unidos](https://nypost.com/2021/09/22/bill-gates-squirms-when-asked-about-jeffrey-epstein-ties/)
 
 ### Preguntas y declaraciones personales
 
 - No he usado una máscara en dos años ni he sido vacunado. *no gastar ninguna cantidad*
 de tiempo con individuos vacunados o enmascarados. Mis interacciones sociales incluyen todas
 normal abrazar, besar y distancia como antes hace 2 años. Mi estimación honesta es que mi
-grupo de contactos incluye 50 locales y breves períodos alrededor de 100 visitantes internacionales
-a Vilcabamba. ¿Cómo es que ninguna de estas personas -y yo- ha sufrido nada
-más que los resfriados normales y la gripe? Evitamos los hospitales -quizás eso es parte de nuestro continuo
-salud.
+grupo de contactos incluye 50 locales y breves períodos alrededor de 100 visitantes internacionales a Vilcabamba. ¿Cómo es que ninguna de estas personas -y yo- ha sufrido nada más que los resfriados normales y la gripe? Evitamos los hospitales -quizás eso es parte de nuestro continuo salud.
 - [Se calcula que la tasa de mortalidad de la enfermedad es de 0.0016% para niños menores de 10 años. ](https://uk.news.yahoo.com/coronavirus-puzzle-why-risk-death-140222308.html) \
-*comentario*: ¿Por qué el gobierno intenta vacunar a los niños cuando tienen menos de 1 en 50.000 posibilidades de morir?
-de Covid-19 ?
+*comentario*: ¿Por qué el gobierno intenta vacunar a los niños cuando tienen menos de 1 en 50.000 posibilidades de morir? de Covid-19 ?
 - ¿Qué crees que es una pena apropiada para alguien que lesiona o mata a un niño?
 Si un niño es lesionado o discapacitado por la aplicación de una vacuna que va a responsabilizarse?
 - Si el gobierno estaba realmente preocupado con su salud, ¿por qué han forzado
@@ -167,6 +174,7 @@ trabajadores y empresas para cerrar durante largos períodos - al mismo tiempo q
 ¿Los bancos siguen siendo pagados?
 
 ### ¿Cómo y por qué los hospitales te están matando y enviando un cuerpo de vuelta diciendo la muerte de Covid en el certificado?
+
 [Se paga a los hospitalarios para que lo maten *subtítulos españoles* ](https://www.bitchute.com/video/Fh8ATZpGzNuZ/)
 
 ### Apagado su televisión, radio y periódico - que están mintiendo a usted -
